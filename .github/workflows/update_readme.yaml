@@ -11,7 +11,7 @@ jobs:
 
     steps:
     - name: Check out repository
-      uses: actions/checkout@v2
+      uses: actions/checkout@v3
 
     - name: Update quote in README
       run: |
@@ -30,10 +30,9 @@ jobs:
 
     - name: Commit and push changes
       run: |
-        git config --local user.email "action@github.com"
-        git config --local user.name "GitHub Action"
+        git config --local user.email "pburckhardt@outlook.com"
+        git config --local user.name "Planeshifter"
         git add README.md
         git commit -m "Update quote in README"
         SLUG=${{ github.repository }}
-        echo "Pushing changes to $SLUG..."
         git push "https://$GITHUB_ACTOR:$GITHUB_TOKEN@github.com/$SLUG.git"

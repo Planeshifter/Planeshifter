@@ -14,3 +14,11 @@
 The best way to attain success is to trust yourself. As Ben Silbermann, co-founder of Pinterest said: "Don’t take too much advice. Most people who have a lot of advice to give... Just build things and find out if they work." We should take risks, act with confidence and not overthink every decision. That’s how innovation and genuine progress will take place.
 
 <!-- </quote> -->
+
+<details>
+  <summary>Cyborg Psychology</summary>
+    
+  https://user-images.githubusercontent.com/1913638/233655652-3dd1797c-8cf3-4099-9014-e8fa22ea01eb.mp4
+  
+  #### ⚡[Take the test!](http://cyborg-psychology.com/) 🚀
+  </details>

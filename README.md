@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Quote: “It’s not who you are that holds you back, it’s who you think you’re not.”
+You reap what you sow. As the Chinese proverb says: “If you pay peanuts, you get monkeys.” If you expect quality work and results, you must be willing to invest in the right people and resources. You can’t expect exceptional performance from those who are not properly rewarded.
 
 <!-- </quote> -->
 

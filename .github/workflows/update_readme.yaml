@@ -1,0 +1,37 @@
+name: Update Quote in README
+
+on:
+  schedule:
+    - cron: '0 0 * * *' # Runs once a day at midnight
+  workflow_dispatch:
+
+jobs:
+  update_quote:
+    runs-on: ubuntu-latest
+
+    steps:
+    - name: Check out repository
+      uses: actions/checkout@v2
+
+    - name: Update quote in README
+      run: |
+        # Read quotes.json and pick a random quote
+        quote=$(jq -r '.[]' quotes.json | shuf -n 1)
+
+        # Update README.md
+        awk -v quote="$quote" '
+          BEGIN { in_quote_block = 0 }
+          /<!-- <quote> -->/ { in_quote_block = 1; print; print ""; print quote; print ""; next }
+          /<!-- <\/quote> -->/ { in_quote_block = 0 }
+          !in_quote_block { print }
+        ' README.md > README.md.updated
+
+        mv README.md.updated README.md
+
+    - name: Commit and push changes
+      run: |
+        git config --local user.email "action@github.com"
+        git config --local user.name "GitHub Action"
+        git add README.md
+        git commit -m "Update quote in README"
+        git push

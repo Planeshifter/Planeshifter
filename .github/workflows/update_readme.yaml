@@ -1,38 +1,56 @@
-name: Update Quote in README
+# Workflow name:
+name: update_quote
 
+# Workflow triggers:
 on:
+  # Run workflow every day at midnight:
   schedule:
-    - cron: '0 0 * * *' # Runs once a day at midnight
+    - cron: '0 0 * * *'
+
+  # Run workflow manually:
   workflow_dispatch:
 
+# Workflow jobs:
 jobs:
+  
+  # Define a job upadting the quote in the README.md file:
   update_quote:
+    
+    # Define a display name:
+    name: 'Update Quote in README'
+
+    # Define the type of virtual host machine:
     runs-on: ubuntu-latest
 
+    # Define the sequence of job steps...
     steps:
-    - name: Check out repository
-      uses: actions/checkout@v3
+      
+      # Checkout the repository:
+      - name: 'Check out repository'
+        uses: actions/checkout@v3
 
-    - name: Update quote in README
-      run: |
-        # Read quotes.json and pick a random quote
-        quote=$(jq -r '.[]' quotes.json | shuf -n 1)
+      # Update the quote in the README.md file:
+      - name: 'Update quote in README.md'
+        run: |
+          # Read quotes.json and pick a random quote
+          quote=$(jq -r '.[]' quotes.json | shuf -n 1)
 
-        # Update README.md
-        awk -v quote="$quote" '
-          BEGIN { in_quote_block = 0 }
-          /<!-- <quote> -->/ { in_quote_block = 1; print; print ""; print quote; print ""; next }
-          /<!-- <\/quote> -->/ { in_quote_block = 0 }
-          !in_quote_block { print }
-        ' README.md > README.md.updated
+          # Update README.md
+          awk -v quote="$quote" '
+            BEGIN { in_quote_block = 0 }
+            /<!-- <quote> -->/ { in_quote_block = 1; print; print ""; print quote; print ""; next }
+            /<!-- <\/quote> -->/ { in_quote_block = 0 }
+            !in_quote_block { print }
+          ' README.md > README.md.updated
 
-        mv README.md.updated README.md
+          mv README.md.updated README.md
 
-    - name: Commit and push changes
-      run: |
-        git config --local user.email "pburckhardt@outlook.com"
-        git config --local user.name "Planeshifter"
-        git add README.md
-        git commit -m "Update quote in README"
-        SLUG=${{ github.repository }}
-        git push "https://$GITHUB_ACTOR:$GITHUB_TOKEN@github.com/$SLUG.git"
+      # Commit and push changes:
+      - name: 'Commit and push changes'
+        run: |
+          git config --local user.email "pburckhardt@outlook.com"
+          git config --local user.name "Planeshifter"
+          git add README.md
+          git commit -m "Update quote in README"
+          SLUG=${{ github.repository }}
+          git push "https://$GITHUB_ACTOR:$GITHUB_TOKEN@github.com/$SLUG.git"

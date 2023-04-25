@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Social media has become an important tool for connecting with others. As Matthew Inman said, “building and hanging on to an audience is the biggest role of social media.”We must use it in a way that builds and nurtures relationships, creating strong networks that support our goals.
+Success requires action, not just words. As Andrew Fashion says: "Make it happen now, not tomorrow. Tomorrow is a loser’s excuse." We need to take ownership of our lives and take action to reach our goals. There's no time to wait or procrastinate. Now is the time.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success requires action, not just words. As Andrew Fashion says: "Make it happen now, not tomorrow. Tomorrow is a loser’s excuse." We need to take ownership of our lives and take action to reach our goals. There's no time to wait or procrastinate. Now is the time.
+Nobody is perfect. As William Rosenberg, founder of Dunkin' Donuts said: "Show me a person who never made a mistake, and I will show you a person who never did anything". Mistakes are a part of life and there's no reason to fear them. It's important to learn from our mistakes and keep moving forward.
 
 <!-- </quote> -->
 

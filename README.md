@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Nobody is perfect. As William Rosenberg, founder of Dunkin' Donuts said: "Show me a person who never made a mistake, and I will show you a person who never did anything". Mistakes are a part of life and there's no reason to fear them. It's important to learn from our mistakes and keep moving forward.
+Success is achievable when you believe in yourself and in what you can do. As Napoleon Hill said, "Anything the mind can conceive and believe, it can achieve". With a strong mindset, determination and hard work, you can reach your dreams.
 
 <!-- </quote> -->
 

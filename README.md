@@ -7,7 +7,7 @@
 
 ### AI Experiments
 
-#### Daily Quote - Commented on by AI
+##### Daily Quote - Commented on by AI
 
 <!-- <quote> -->
 
@@ -15,10 +15,6 @@ How long does it take to do anything? As long as it takes! Or, as Helen Keller s
 
 <!-- </quote> -->
 
-<details>
-  <summary>Cyborg Psychology</summary>
-    
-  https://user-images.githubusercontent.com/1913638/233655652-3dd1797c-8cf3-4099-9014-e8fa22ea01eb.mp4
-  
-  #### ⚡[Take the test!](http://cyborg-psychology.com/) 🚀
-  </details>
+##### <details><summary>⚡[Cyborg Psychology - Take the test!](http://cyborg-psychology.com/) 🚀 </summary>https://user-images.githubusercontent.com/1913638/233655652-3dd1797c-8cf3-4099-9014-e8fa22ea01eb.mp4 </details>
+
+##### [Daily HackerNews AI Digest](https://ai-digest.vercel.app/)

@@ -15,6 +15,6 @@ How long does it take to do anything? As long as it takes! Or, as Helen Keller s
 
 <!-- </quote> -->
 
-##### <details><summary>⚡[Cyborg Psychology - Take the test!](http://cyborg-psychology.com/) 🚀 </summary>https://user-images.githubusercontent.com/1913638/233655652-3dd1797c-8cf3-4099-9014-e8fa22ea01eb.mp4 </details>
+##### <details><summary>⚡[Cyborg Psychology - Take the test!](http://cyborg-psychology.com/) 🚀 </summary>https://user-images.githubusercontent.com/1913638/233655652-3dd1797c-8cf3-4099-9014-e8fa22ea01eb.mp4 URL: [http://cyborg-psychology.com](http://cyborg-psychology.com)</details>
 
-##### [Daily HackerNews AI Digest](https://ai-digest.vercel.app/)
+##### <details><summary>:brain: [Daily HackerNews AI Digest](https://ai-digest.vercel.app/) :bulb:</summary> URL: [https://ai-digest.vercel.app/](https://ai-digest.vercel.app/)</details>

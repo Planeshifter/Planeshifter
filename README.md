@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's true that success doesn't come easily. As Arnold Palmer said, “The road to success is always under construction”. We need to be patient, persistent and never give up. With hard work and dedication, we can achieve anything we set our minds to.
+Abraham Lincoln said it best: “Example is not the main thing in influencing other people; it’s the only thing.” If we want to be successful in motivating and inspiring others, we need to lead by example. Our actions and words must be consistent, and we must be willing to put in the work to show others what is possible.
 
 <!-- </quote> -->
 

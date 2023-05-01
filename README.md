@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Abraham Lincoln said it best: “Example is not the main thing in influencing other people; it’s the only thing.” If we want to be successful in motivating and inspiring others, we need to lead by example. Our actions and words must be consistent, and we must be willing to put in the work to show others what is possible.
+Life is not just about material gain and success. Quoted by Tony Hsieh on Retireat21, "To never forget that the most important thing in life is the quality of life we lead." We should never lose sight of what makes life meaningful. Enjoying time with friends and family, living with purpose, and contributing to our communities are the things that will make us truly happy and fulfilled.
 
 <!-- </quote> -->
 

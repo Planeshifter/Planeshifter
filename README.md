@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is not just about material gain and success. Quoted by Tony Hsieh on Retireat21, "To never forget that the most important thing in life is the quality of life we lead." We should never lose sight of what makes life meaningful. Enjoying time with friends and family, living with purpose, and contributing to our communities are the things that will make us truly happy and fulfilled.
+Success requires action, not just words. As Andrew Fashion says: "Make it happen now, not tomorrow. Tomorrow is a loser’s excuse." We need to take ownership of our lives and take action to reach our goals. There's no time to wait or procrastinate. Now is the time.
 
 <!-- </quote> -->
 

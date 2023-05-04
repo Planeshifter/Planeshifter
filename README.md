@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life can be full of challenges, but it's up to us how we choose to face them. As Winston Churchill said: "A pessimist sees the difficulty in every opportunity; an optimist sees the opportunity in every difficulty". As challenging as life can be, we can find the silver lining and use it to our advantage.
+Starting a business is a difficult and often daunting task. However, with the power of the internet and the speed of innovation, it presents new opportunities for entrepreneurs. As Matt Mickiewicz said: "The pace of change for entrepreneurs is rapidly accelerating, and the cost and risk of launching a new business and getting off the ground is just amazing. The ability to gain user feedback quickly and adapt to what your consumers want is totally different with the web as it is now". With the right tools and resources, entrepreneurs can turn their ideas into a reality.
 
 <!-- </quote> -->
 

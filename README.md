@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Starting a business is a difficult and often daunting task. However, with the power of the internet and the speed of innovation, it presents new opportunities for entrepreneurs. As Matt Mickiewicz said: "The pace of change for entrepreneurs is rapidly accelerating, and the cost and risk of launching a new business and getting off the ground is just amazing. The ability to gain user feedback quickly and adapt to what your consumers want is totally different with the web as it is now". With the right tools and resources, entrepreneurs can turn their ideas into a reality.
+Entrepreneurship is a way of life that requires dedication and sacrifice. As one student put it: "Entrepreneurship is living a few years of your life like most people won't so you can spend the rest of your life like most people can't." This means taking risks and being willing to go the extra mile in order to be successful. It's a challenging path, but ultimately rewarding. The rewards of entrepreneurship lie in the satisfaction of achieving something great.
 
 <!-- </quote> -->
 

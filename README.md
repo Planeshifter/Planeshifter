@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Where can strength and confidence be found? Within. Or, as Anna Freud said, "I was always looking outside myself for strength and confidence, but it comes from within. It is there all of the time." This quote emphasizes the importance of self-confidence and self-reliance. It is important to remember that our internal resources are just as valid and powerful as those we find in the external world. When we are able to tap into the confidence and strength that lies within us, we can persevere in the face of life's challenges and create the success we desire.
+Success never comes from complacency. As Jimmy Spithill, Australian yachtsman, said: "Rarely have I seen a situation where doing less than the other guy is a good strategy". This means we have to take risks, set ambitious goals, and consistently work hard to reach our goals and surpass our competition.
 
 <!-- </quote> -->
 

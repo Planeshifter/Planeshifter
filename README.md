@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success doesn't come easy. As Zig Ziglar said: "You were born to win, but to be a winner, you must plan to win, prepare to win, and expect to win." It takes dedication and hard work to achieve our goals, but with the right attitude, anything is possible.
+Adversity can make us stronger. As the Chinese proverb says, "The diamond cannot be polished without friction, nor the man perfected without trials." Difficult times help build our resilience and can lead to personal growth. To become the best version of ourselves, we must be willing to face our challenges head on.
 
 <!-- </quote> -->
 

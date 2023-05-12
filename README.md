@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is achievable when you believe in yourself and in what you can do. As Napoleon Hill said, "Anything the mind can conceive and believe, it can achieve". With a strong mindset, determination and hard work, you can reach your dreams.
+Thomas Edison believed in giving back. He said that he never perfected an invention that he didn't think about in terms of the service it might give others. He wanted to use his inventions to make the world a better place. He believed in finding out what the world needs, and then inventing it. His ideas are still inspiring us today.
 
 <!-- </quote> -->
 

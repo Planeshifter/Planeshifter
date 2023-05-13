@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Thomas Edison believed in giving back. He said that he never perfected an invention that he didn't think about in terms of the service it might give others. He wanted to use his inventions to make the world a better place. He believed in finding out what the world needs, and then inventing it. His ideas are still inspiring us today.
+Leadership is about more than just telling people what to do. It's about doing the right thing even when no one is watching. As George Van Valkenburg said, "Leadership is doing what is right when no one is watching." That takes real courage and self-discipline, and it's what sets great leaders apart from the rest.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Sometimes, the hardest part of a task is knowing how to go about it. As Charles Steinmetz's invoice notes, the difference between success and failure often lies in the details. To create extraordinary results, we have to be willing to invest the time and energy needed to understand the nuances of the task. Without knowledge, our labour is often wasted.
+The people you surround yourself with have a major influence on who you are. As Booker T. Washington said: "Associate yourself with people of good quality, for it is better to be alone than in bad company." Who we spend our time with matters. When we choose our friends wisely, we can become better versions of ourselves.
 
 <!-- </quote> -->
 

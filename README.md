@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-The people you surround yourself with have a major influence on who you are. As Booker T. Washington said: "Associate yourself with people of good quality, for it is better to be alone than in bad company." Who we spend our time with matters. When we choose our friends wisely, we can become better versions of ourselves.
+Henry Ford had a great vision for his business. He said "A business that makes nothing but money is a poor business." This is a reminder that success can’t just be measured in dollars and cents. To be successful, a business needs to provide value and satisfaction to its customers. Money is just the reward for a job well done.
 
 <!-- </quote> -->
 

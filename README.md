@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Money and material things can only take us so far. As Aristotle said: "After a certain point, money is meaningless. It ceases to be the goal. The game is what counts." We shouldn't strive to acquire wealth just for the sake of it. The ultimate goal should be to experience life and enjoy the journey.
+What is the secret to life? Finding purpose. Or, as C. H. Parkhurst said, "Purpose is what gives life a meaning." The quote suggests that having purpose in life is vital for a meaningful existence. It is important to find that purpose in our lives because it gives us direction, motivation, and overall satisfaction. Having purpose keeps us focused on our goals, drives us to continue striving for better, and allows us to experience a sense of contentment when we reach our desired outcomes.
 
 <!-- </quote> -->
 

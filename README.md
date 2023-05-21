@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What do dreamers do? Shape the future. Or, as Eleanor Roosevelt said, "The future belongs to those who believe in the beauty of their dreams." This quote encourages us to believe in the potential of our dreams, and to have the courage to pursue them. It is an important reminder that we have the power to create the future we want, and that our dreams have the potential to become a reality. By believing in our dreams, we can take steps to make them happen and ultimately shape our own futures.
+It’s never too late to start working towards your goals. As the Chinese proverb goes: "The best time to plant a tree was 20 years ago. The second best time is now". Our past does not define us, and it’s never too late to make a positive change.
 
 <!-- </quote> -->
 

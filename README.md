@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Why bother if all obstacles must be cleared first? Because nothing will get done. Or, as Samuel Johnson said, Nothing will ever be attempted if all possible objections must first be overcome. This quote reminds us that it is not enough to just see the potential benefits of a task, but that we must take action in order to get something done. In our lives, this means that if we want to achieve our goals, we must be willing to take risks and overcome any obstacles that stand in our way.
+Henry Ford had a great vision for his business. He said "A business that makes nothing but money is a poor business." This is a reminder that success can’t just be measured in dollars and cents. To be successful, a business needs to provide value and satisfaction to its customers. Money is just the reward for a job well done.
 
 <!-- </quote> -->
 

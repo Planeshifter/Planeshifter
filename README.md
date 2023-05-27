@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You can't give up when you face adversity. As the Japanese proverb says, "Fall seven times and stand up eight". We have to persevere in times of trouble and never give up. We must take on every challenge with courage and determination.
+Having the right strategy and mindset is key for long-term success. As the old saying goes, “It’s better to own the racecourse than the racehorse”. This means you should focus on building a strong foundation for success and make sure you have the proper tools and resources to reach your goals. This way, you will have a better chance of achieving your dreams.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Having the right strategy and mindset is key for long-term success. As the old saying goes, “It’s better to own the racecourse than the racehorse”. This means you should focus on building a strong foundation for success and make sure you have the proper tools and resources to reach your goals. This way, you will have a better chance of achieving your dreams.
+Success is achievable when you believe in yourself and in what you can do. As Napoleon Hill said, "Anything the mind can conceive and believe, it can achieve". With a strong mindset, determination and hard work, you can reach your dreams.
 
 <!-- </quote> -->
 

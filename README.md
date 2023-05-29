@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is achievable when you believe in yourself and in what you can do. As Napoleon Hill said, "Anything the mind can conceive and believe, it can achieve". With a strong mindset, determination and hard work, you can reach your dreams.
+What does it take to be wise? Hard work and dedication. Or, as Seneca said, "No man was ever wise by chance." This quote encourages us to take ownership of our development, and to recognize that wisdom takes effort. This quote is relevant to our daily lives because it reminds us that we must be willing to put in the effort if we want to realize our fullest potential.
 
 <!-- </quote> -->
 

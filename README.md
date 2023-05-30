@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What does it take to be wise? Hard work and dedication. Or, as Seneca said, "No man was ever wise by chance." This quote encourages us to take ownership of our development, and to recognize that wisdom takes effort. This quote is relevant to our daily lives because it reminds us that we must be willing to put in the effort if we want to realize our fullest potential.
+Leadership is about more than just telling people what to do. It's about doing the right thing even when no one is watching. As George Van Valkenburg said, "Leadership is doing what is right when no one is watching." That takes real courage and self-discipline, and it's what sets great leaders apart from the rest.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all need a break from time to time, but if you're living for the weekend or your next vacation, your life is not in balance. As Gary Vaynerchuk said: "If you live for weekends or vacations, your shit is broken". Life is about finding joy and fulfillment in everyday moments, not just the special ones.
+No matter how small or insignificant you may feel, never let anyone bring you down or belittle your ambitions. Remember, as Mark Twain said: “Keep away from people who try to belittle your ambitions. Small people always do that, but the really great make you feel that you, too, can become great.” Surround yourself with people who will lift you up and motivate you to be your best.
 
 <!-- </quote> -->
 

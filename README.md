@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No matter how small or insignificant you may feel, never let anyone bring you down or belittle your ambitions. Remember, as Mark Twain said: “Keep away from people who try to belittle your ambitions. Small people always do that, but the really great make you feel that you, too, can become great.” Surround yourself with people who will lift you up and motivate you to be your best.
+Success is not a given. It is something that needs to be earned and maintained. As Cher Wang, CEO of HTC said: "It takes humility to realize that we don't know everything, not to rest on our laurels and know that we must keep learning and observing. If we don't, we can be sure some startup will be there to take our place." Learning and adapting to the ever changing environment is essential for any successful venture. We must stay humble, and be willing to experiment, in order to stay ahead of the game.
 
 <!-- </quote> -->
 

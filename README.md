@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Entrepreneurship is a journey that requires you to take risks that most people won't in order to achieve success. As Anonymous said, "Entrepreneurship is living a few years of your life like most people won't, so that you can spend the rest of your life like most people can't". It is going the extra mile and giving it your all every day to create something amazing.
+No man is an island. As the Chinese proverb says: "Make happy those who are near, and those who are far will come". Our connections to the people around us are essential to our overall contentment and success, so it's important to nurture them.
 
 <!-- </quote> -->
 

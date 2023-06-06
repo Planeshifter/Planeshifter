@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No man is an island. As the Chinese proverb says: "Make happy those who are near, and those who are far will come". Our connections to the people around us are essential to our overall contentment and success, so it's important to nurture them.
+Life can be full of surprises and unexpected turns. As Les Dawson said, “I used to sell furniture for a living. The trouble was, it was my own.” Despite our best efforts, sometimes things don't go to plan and we have to find a new way to move forward. This can be a challenging journey, but it can also be a valuable learning experience.
 
 <!-- </quote> -->
 

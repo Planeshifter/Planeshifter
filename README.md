@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life can be full of surprises and unexpected turns. As Les Dawson said, “I used to sell furniture for a living. The trouble was, it was my own.” Despite our best efforts, sometimes things don't go to plan and we have to find a new way to move forward. This can be a challenging journey, but it can also be a valuable learning experience.
+We all have different definitions of success. For some, success is having a fulfilling career, for others it's having financial stability. But whatever our ambition, as Christopher Morley said, “There is only one success ― to be able to spend your life in your own way”. Living life on our own terms is the greatest success we can achieve.
 
 <!-- </quote> -->
 

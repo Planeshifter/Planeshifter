@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-When is the best time to act? When the time is right. Or, as Andrew Jackson said, "Take time to deliberate; but when the time for action arrives, stop thinking and go in." This quote means that it is important to take time for careful consideration of a situation before making a decision, but when the time for action has come, it is best to stop worrying and move forward with confidence. This quote is important to me because it helps to remind me to weigh the pros and cons of any decision before taking action, but also to trust my instincts and act with purpose when the time is right.
+Success does not come without effort. As Charles F. Kettering said: "Keep on going, and the chances are that you will stumble on something, perhaps when you are least expecting it. I never heard of anyone ever stumbling on something sitting down." We must stay positive and keep pushing even when progress is slow, for it is only through hard work and perseverance that we can achieve our goals.
 
 <!-- </quote> -->
 

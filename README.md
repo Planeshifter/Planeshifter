@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success does not come without effort. As Charles F. Kettering said: "Keep on going, and the chances are that you will stumble on something, perhaps when you are least expecting it. I never heard of anyone ever stumbling on something sitting down." We must stay positive and keep pushing even when progress is slow, for it is only through hard work and perseverance that we can achieve our goals.
+No matter how small or insignificant you may feel, never let anyone bring you down or belittle your ambitions. Remember, as Mark Twain said: “Keep away from people who try to belittle your ambitions. Small people always do that, but the really great make you feel that you, too, can become great.” Surround yourself with people who will lift you up and motivate you to be your best.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No matter how small or insignificant you may feel, never let anyone bring you down or belittle your ambitions. Remember, as Mark Twain said: “Keep away from people who try to belittle your ambitions. Small people always do that, but the really great make you feel that you, too, can become great.” Surround yourself with people who will lift you up and motivate you to be your best.
+Life is not just about material gain and success. Quoted by Tony Hsieh on Retireat21, "To never forget that the most important thing in life is the quality of life we lead." We should never lose sight of what makes life meaningful. Enjoying time with friends and family, living with purpose, and contributing to our communities are the things that will make us truly happy and fulfilled.
 
 <!-- </quote> -->
 

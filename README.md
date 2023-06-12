@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is not just about material gain and success. Quoted by Tony Hsieh on Retireat21, "To never forget that the most important thing in life is the quality of life we lead." We should never lose sight of what makes life meaningful. Enjoying time with friends and family, living with purpose, and contributing to our communities are the things that will make us truly happy and fulfilled.
+You can't just throw any feature into a project and expect it to work. As Noah Everett from Twitpic says: "A poorly implemented feature hurts more than not having it at all". It's important to take the time to make sure all features are properly thought out and implemented. This can make all the difference between success and failure.
 
 <!-- </quote> -->
 

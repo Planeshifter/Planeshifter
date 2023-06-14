@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-How can we stay strong in difficult times? Never give in, no matter the opposition. Or, as Winston Churchill said, "Never, never, never, never, in nothing great or small, large or petty, never give in except to convictions of honour and good sense. Never yield to force; never yield to the apparently overwhelming might of the enemy." Self-control, resilience, and perseverance are essential for success and Churchill's quote is a reminder to never give in, no matter the challenge. This quote relates to our daily lives because it encourages us to stay focused on our goals and objectives, and to keep striving for them no matter the obstacles that we might face.
+Money cannot buy happiness and satisfaction. Charles M. Schwab was right when he said: "The man who does not work for the love of work but only for money is likely to neither make money nor find much fun in life." We should look for joy in our work, not just in the reward. It's the only way to truly achieve success.
 
 <!-- </quote> -->
 

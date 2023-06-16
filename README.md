@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You have the power to create your own future. As Farrah Gray said: "Build your own dreams, or someone else will hire you to build theirs." Don't be afraid to take risks and pursue your ambitions. With hard work and dedication, you can reach your goals and live the life you want.
+Time is of the essence in today's high-paced world. Tamara Steffens said it best: "Assume you have 90 seconds with a new user before they decide to use your app or delete it". This is especially true for mobile apps, where users are often overwhelmed with choices and easily become disinterested. It's essential to make a good first impression and engage users in a short period of time. Every second counts when it comes to user retention and satisfaction.
 
 <!-- </quote> -->
 

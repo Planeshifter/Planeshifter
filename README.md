@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Time is of the essence in today's high-paced world. Tamara Steffens said it best: "Assume you have 90 seconds with a new user before they decide to use your app or delete it". This is especially true for mobile apps, where users are often overwhelmed with choices and easily become disinterested. It's essential to make a good first impression and engage users in a short period of time. Every second counts when it comes to user retention and satisfaction.
+Success isn't a guarantee but that doesn't mean that we should give up. As Drew Houston stated, “Don’t worry about failure; you only have to be right once”. Taking risks and trying new things, even if they don't work out, can lead to great results and breakthroughs.
 
 <!-- </quote> -->
 

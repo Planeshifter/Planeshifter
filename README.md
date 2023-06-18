@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success isn't a guarantee but that doesn't mean that we should give up. As Drew Houston stated, “Don’t worry about failure; you only have to be right once”. Taking risks and trying new things, even if they don't work out, can lead to great results and breakthroughs.
+Hard work pays off, as Robert Frost said: "By working faithfully eight hours a day you may eventually get to be boss and work twelve hours a day". It takes dedication and effort to reach the top, and it's important to remember that success doesn't come overnight.
 
 <!-- </quote> -->
 

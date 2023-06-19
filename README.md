@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Hard work pays off, as Robert Frost said: "By working faithfully eight hours a day you may eventually get to be boss and work twelve hours a day". It takes dedication and effort to reach the top, and it's important to remember that success doesn't come overnight.
+What's the key to success? Knowing something no one else knows. Or, as Aristotle Onassis said, "The secret of success is to know something nobody else knows." This implies the importance of having knowledge or skills that are rare and valuable. This quote is incredibly relevant in today's world, as having that extra knowledge or skill can help you stand out in a competitive job market or lead to success in other areas of life.
 
 <!-- </quote> -->
 

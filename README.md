@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What's the key to success? Knowing something no one else knows. Or, as Aristotle Onassis said, "The secret of success is to know something nobody else knows." This implies the importance of having knowledge or skills that are rare and valuable. This quote is incredibly relevant in today's world, as having that extra knowledge or skill can help you stand out in a competitive job market or lead to success in other areas of life.
+What goes down must come up?  Yes! Or, as General George Patton said, "Success is how high you bounce after you hit bottom." This quote encourages us to focus on getting back up again after experiencing failure. It emphasizes the importance of resilience, and how it can be a powerful tool to help us reach our goals. This quote is important to me as it is a reminder that even when life knocks us down, we can always find a way to get back up and keep going. It encourages me to take each failure as an opportunity to learn and grow, and to never give up on my dreams.
 
 <!-- </quote> -->
 

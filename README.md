@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What goes down must come up?  Yes! Or, as General George Patton said, "Success is how high you bounce after you hit bottom." This quote encourages us to focus on getting back up again after experiencing failure. It emphasizes the importance of resilience, and how it can be a powerful tool to help us reach our goals. This quote is important to me as it is a reminder that even when life knocks us down, we can always find a way to get back up and keep going. It encourages me to take each failure as an opportunity to learn and grow, and to never give up on my dreams.
+True success is not defined by the number of possessions or accolades. Rather, Christopher Morley put it best when he said, “There is only one success- to be able to spend your life in your own way." Live life on your own terms and take control of your own destiny.
 
 <!-- </quote> -->
 

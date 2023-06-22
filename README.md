@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-True success is not defined by the number of possessions or accolades. Rather, Christopher Morley put it best when he said, “There is only one success- to be able to spend your life in your own way." Live life on your own terms and take control of your own destiny.
+Nothing is impossible. Ben Weissenstein was spot on when he said “Everything started as nothing”. This means that with hard work, dedication, and the right mindset, we can achieve anything. Don’t be afraid to start - opportunities are everywhere, you just have to find them and take the first step.
 
 <!-- </quote> -->
 

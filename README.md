@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Nothing is impossible. Ben Weissenstein was spot on when he said “Everything started as nothing”. This means that with hard work, dedication, and the right mindset, we can achieve anything. Don’t be afraid to start - opportunities are everywhere, you just have to find them and take the first step.
+Life is not a straight path, it is full of challenges. As the Asian Proverb says: "Building a castle is difficult. Defending and maintaining it is harder still". To reach our goals and sustain them, we must have the resilience to persevere even in the toughest of times.
 
 <!-- </quote> -->
 

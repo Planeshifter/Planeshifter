@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is not a straight path, it is full of challenges. As the Asian Proverb says: "Building a castle is difficult. Defending and maintaining it is harder still". To reach our goals and sustain them, we must have the resilience to persevere even in the toughest of times.
+Failure is an essential part of success. As Jeff Bezos said: "If you want to be inventive, you have to be willing to fail". We can’t be scared of the possibility of failure. It’s only through repeated attempts that we can find our way to the right solution.
 
 <!-- </quote> -->
 

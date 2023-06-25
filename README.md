@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Failure is an essential part of success. As Jeff Bezos said: "If you want to be inventive, you have to be willing to fail". We can’t be scared of the possibility of failure. It’s only through repeated attempts that we can find our way to the right solution.
+As the old saying goes, "If at first you don't succeed, try, try again." This is the sentiment behind the quote by Reid Hoffman, "Nine out of ten businesses fail; so I came up with a foolproof plan ― create ten businesses." The idea of creating multiple businesses is an excellent one - if one fails, you may still have other ventures to fall back on. With hard work and dedication, the odds of success increase. Quote: “It’s not who you are that holds you back, it’s who you think you’re not.” ― Denis Waitley
 
 <!-- </quote> -->
 

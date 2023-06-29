@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Leadership is about more than just telling people what to do. It's about doing the right thing even when no one is watching. As George Van Valkenburg said, "Leadership is doing what is right when no one is watching." That takes real courage and self-discipline, and it's what sets great leaders apart from the rest.
+Happiness is not something to be chased, it's a natural consequence of living a meaningful life. As Eleanor Roosevelt said: "Happiness is not a goal, but a by-product". We can only find satisfaction and joy when we pursue meaningful goals and work hard to achieve them.
 
 <!-- </quote> -->
 

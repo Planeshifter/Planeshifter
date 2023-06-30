@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Happiness is not something to be chased, it's a natural consequence of living a meaningful life. As Eleanor Roosevelt said: "Happiness is not a goal, but a by-product". We can only find satisfaction and joy when we pursue meaningful goals and work hard to achieve them.
+Success is a matter of believing in yourself. As the saying goes, "Believe that you will succeed ― and you will". Believe in yourself and you'll be able to accomplish anything you set your mind to. Don't be discouraged by setbacks or mistakes and stay focused on your goals. With the right attitude and effort, you can achieve success.
 
 <!-- </quote> -->
 

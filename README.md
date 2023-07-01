@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is a matter of believing in yourself. As the saying goes, "Believe that you will succeed ― and you will". Believe in yourself and you'll be able to accomplish anything you set your mind to. Don't be discouraged by setbacks or mistakes and stay focused on your goals. With the right attitude and effort, you can achieve success.
+What does the changing of the seasons bring? Change and acceptance. Or, as Henry David Thoreau said, "Live in each season as it passes; breathe the air, drink the drink, taste the fruit, and resign yourself to the influences of each." This quote encourages us to live in the present moment, to accept the change that each season brings, and to make the most of the experiences it has to offer. This is an important reminder in our lives, as we can often become overwhelmed by the increasing demands of daily life and forget to take time to appreciate the beauty of each new season.
 
 <!-- </quote> -->
 

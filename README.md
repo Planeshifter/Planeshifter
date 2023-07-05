@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Nothing comes easy, and to be successful, we have to be dedicated and passionate. Thomas J. Watson said it best: "To be successful, you have to have your heart in your business, and your business in your heart". We must do our best and put in the effort to reach our goals.
+You have the power to choose your own destiny. As the Hasidic Proverb says, “Everyone should carefully observe which way his heart draws him, and then choose that way with all his strength.” Following your heart and trusting your intuition will guide you to the best path for you.
 
 <!-- </quote> -->
 

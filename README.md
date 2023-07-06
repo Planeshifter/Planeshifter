@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You have the power to choose your own destiny. As the Hasidic Proverb says, “Everyone should carefully observe which way his heart draws him, and then choose that way with all his strength.” Following your heart and trusting your intuition will guide you to the best path for you.
+What are we made of? We are made of our habits. Or, as Aristotle said, "We are what we repeatedly do. Excellence, therefore, is not an act but a habit." This quote emphasizes that it is our habits that shape our character, not single actions. This is important to our daily lives because we become who we are through the habits we develop. To become our best selves, we must focus on developing habits that lead to excellence.
 
 <!-- </quote> -->
 

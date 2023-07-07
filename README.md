@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What are we made of? We are made of our habits. Or, as Aristotle said, "We are what we repeatedly do. Excellence, therefore, is not an act but a habit." This quote emphasizes that it is our habits that shape our character, not single actions. This is important to our daily lives because we become who we are through the habits we develop. To become our best selves, we must focus on developing habits that lead to excellence.
+What must come before a masterpiece? An amateur. Or, as Ralph Waldo Emerson said, "Every artist was first an amateur." This quote reminds us that everyone starts off as a beginner and has to work hard to achieve success. It encourages us to stay humble and keep striving for improvement, no matter our current level of success. This quote is important to me because it keeps me motivated to reach my goals, and to not be discouraged by any failures or roadblocks I may face.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What must come before a masterpiece? An amateur. Or, as Ralph Waldo Emerson said, "Every artist was first an amateur." This quote reminds us that everyone starts off as a beginner and has to work hard to achieve success. It encourages us to stay humble and keep striving for improvement, no matter our current level of success. This quote is important to me because it keeps me motivated to reach my goals, and to not be discouraged by any failures or roadblocks I may face.
+Sometimes it takes a hard fall to learn a lesson. As the Chinese proverb says: "A fall into a ditch makes you wiser". We may not realize it at the time, but mistakes can actually lead to valuable insights and wisdom. We just have to be willing to look at the situation differently and learn from it.
 
 <!-- </quote> -->
 

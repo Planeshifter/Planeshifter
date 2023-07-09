@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Sometimes it takes a hard fall to learn a lesson. As the Chinese proverb says: "A fall into a ditch makes you wiser". We may not realize it at the time, but mistakes can actually lead to valuable insights and wisdom. We just have to be willing to look at the situation differently and learn from it.
+Success is often a matter of timing and discretion. Chris Dixon, co-founder of Hunch, said: "Get big quietly, so you don’t tip off potential competitors". Taking a slow and steady approach to growth is key to staying ahead in the game and avoiding unwanted attention.
 
 <!-- </quote> -->
 

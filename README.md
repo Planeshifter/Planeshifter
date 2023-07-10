@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is often a matter of timing and discretion. Chris Dixon, co-founder of Hunch, said: "Get big quietly, so you don’t tip off potential competitors". Taking a slow and steady approach to growth is key to staying ahead in the game and avoiding unwanted attention.
+What is the best way to prepare for the future? Spend your time and effort on the tasks of the present. Or, as Ralph Waldo Emerson said, "Don't waste your life in doubts and fears: Spend yourself on the work before you, well assured that the right performance of this hour's duties will be the best preparation for the hours or ages that follow it." This quote encourages us to be mindful of the present and to focus on the task at hand, rather than worrying too much about future outcomes. By investing our time and effort in the present, we are better able to prepare for the future. This is important because it helps us to stay motivated and focused on what matters in our lives.
 
 <!-- </quote> -->
 

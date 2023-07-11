@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is the best way to prepare for the future? Spend your time and effort on the tasks of the present. Or, as Ralph Waldo Emerson said, "Don't waste your life in doubts and fears: Spend yourself on the work before you, well assured that the right performance of this hour's duties will be the best preparation for the hours or ages that follow it." This quote encourages us to be mindful of the present and to focus on the task at hand, rather than worrying too much about future outcomes. By investing our time and effort in the present, we are better able to prepare for the future. This is important because it helps us to stay motivated and focused on what matters in our lives.
+What is the secret to life? Finding purpose. Or, as C. H. Parkhurst said, "Purpose is what gives life a meaning." The quote suggests that having purpose in life is vital for a meaningful existence. It is important to find that purpose in our lives because it gives us direction, motivation, and overall satisfaction. Having purpose keeps us focused on our goals, drives us to continue striving for better, and allows us to experience a sense of contentment when we reach our desired outcomes.
 
 <!-- </quote> -->
 

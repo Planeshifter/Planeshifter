@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Sometimes, the biggest success comes after the biggest failure. As Napoleon Hill said: "Most great people have attained their greatest success just one step beyond their greatest failure". This means that failure is often a part of the process in achieving success, and we should use it as a learning opportunity to keep moving forward.
+What's the simplest way to get ahead? Do something now. Or, as Nolan Bushnell said, "The critical ingredient is getting off your butt and doing something. It’s as simple as that. A lot of people have ideas, but there are few who decide to do something about them now. Not tomorrow. Not next week. But today. The true entrepreneur is a doer, not a dreamer." This quote stresses the importance of taking action in order to make progress and achieve success. In life, it is not enough to simply have an idea - we must have the courage and determination to take the necessary steps to make it happen. Only by actually doing something can we turn our dreams into reality.
 
 <!-- </quote> -->
 

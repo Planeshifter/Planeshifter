@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It’s never too late to start working towards your goals. As the Chinese proverb goes: "The best time to plant a tree was 20 years ago. The second best time is now". Our past does not define us, and it’s never too late to make a positive change.
+It's not enough to just have a job. As Michael Gerber said: "The entrepreneur builds an enterprise; the technician builds a job". To really make a difference, we need to open ourselves to the possibility of creating something more. When we take the risk of stepping outside of our comfort zone and pursue our passion, we can build something that lasts.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's not enough to just have a job. As Michael Gerber said: "The entrepreneur builds an enterprise; the technician builds a job". To really make a difference, we need to open ourselves to the possibility of creating something more. When we take the risk of stepping outside of our comfort zone and pursue our passion, we can build something that lasts.
+If you want to start making progress towards your goals, then you can't just talk about them. As Walt Disney said, "The way to get started is to quit talking and begin doing". Taking action is the only way to make progress and to go from dreaming to achieving.
 
 <!-- </quote> -->
 

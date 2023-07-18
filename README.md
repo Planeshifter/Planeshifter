@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-If you want to start making progress towards your goals, then you can't just talk about them. As Walt Disney said, "The way to get started is to quit talking and begin doing". Taking action is the only way to make progress and to go from dreaming to achieving.
+Hard work is essential to achieving success, but it’s not always easy. As Claude McDonald said, “If hard work is the key to success, most people would rather pick the lock.” Far too often, people take the easy route and try to shortcut the process. This rarely works out in the long run.
 
 <!-- </quote> -->
 

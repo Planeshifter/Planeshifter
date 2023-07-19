@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Hard work is essential to achieving success, but it’s not always easy. As Claude McDonald said, “If hard work is the key to success, most people would rather pick the lock.” Far too often, people take the easy route and try to shortcut the process. This rarely works out in the long run.
+We all have unique skills and talents. As Albert Einstein said “Everyone is a genius. But if you judge a fish by its ability to climb a tree, it will spend its whole life believing it is stupid.” We should strive to appreciate and nurture our individual gifts instead of expecting them to conform to set standards.
 
 <!-- </quote> -->
 

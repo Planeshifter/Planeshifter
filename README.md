@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all have unique skills and talents. As Albert Einstein said “Everyone is a genius. But if you judge a fish by its ability to climb a tree, it will spend its whole life believing it is stupid.” We should strive to appreciate and nurture our individual gifts instead of expecting them to conform to set standards.
+You have the power to choose your own destiny. As the Hasidic Proverb says, “Everyone should carefully observe which way his heart draws him, and then choose that way with all his strength.” Following your heart and trusting your intuition will guide you to the best path for you.
 
 <!-- </quote> -->
 

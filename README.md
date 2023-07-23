@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is achievable when you believe in yourself and in what you can do. As Napoleon Hill said, "Anything the mind can conceive and believe, it can achieve". With a strong mindset, determination and hard work, you can reach your dreams.
+We all know that time is money. As Carrie Wilkerson said: "The longer you’re not taking action the more money you’re losing." The longer we wait and procrastinate, the more opportunities we miss out on and the further we fall behind. So don't sit around, take action now!
 
 <!-- </quote> -->
 

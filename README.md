@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all know that time is money. As Carrie Wilkerson said: "The longer you’re not taking action the more money you’re losing." The longer we wait and procrastinate, the more opportunities we miss out on and the further we fall behind. So don't sit around, take action now!
+Death is a part of life and an inevitable reality that each of us will have to face. As Steve Jobs said, “Remembering you are going to die is the best way I know to avoid the trap of thinking you have something to lose." We should remember that life is short, and make the most of it by living it to the fullest.
 
 <!-- </quote> -->
 

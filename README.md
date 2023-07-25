@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Death is a part of life and an inevitable reality that each of us will have to face. As Steve Jobs said, “Remembering you are going to die is the best way I know to avoid the trap of thinking you have something to lose." We should remember that life is short, and make the most of it by living it to the fullest.
+You don’t have to force yourself to like something; it will come naturally. As Jeff Bezos said: "One of the huge mistakes people make is that they try to force an interest on themselves. You don’t choose your passions; your passions choose you." So follow your heart, and you will discover your true passion and purpose in life.
 
 <!-- </quote> -->
 

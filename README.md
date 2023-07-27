@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What's the key to success? Knowing something no one else knows. Or, as Aristotle Onassis said, "The secret of success is to know something nobody else knows." This implies the importance of having knowledge or skills that are rare and valuable. This quote is incredibly relevant in today's world, as having that extra knowledge or skill can help you stand out in a competitive job market or lead to success in other areas of life.
+What's the simplest way to get ahead? Do something now. Or, as Nolan Bushnell said, "The critical ingredient is getting off your butt and doing something. It’s as simple as that. A lot of people have ideas, but there are few who decide to do something about them now. Not tomorrow. Not next week. But today. The true entrepreneur is a doer, not a dreamer." This quote stresses the importance of taking action in order to make progress and achieve success. In life, it is not enough to simply have an idea - we must have the courage and determination to take the necessary steps to make it happen. Only by actually doing something can we turn our dreams into reality.
 
 <!-- </quote> -->
 

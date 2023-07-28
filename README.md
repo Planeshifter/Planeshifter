@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What's the simplest way to get ahead? Do something now. Or, as Nolan Bushnell said, "The critical ingredient is getting off your butt and doing something. It’s as simple as that. A lot of people have ideas, but there are few who decide to do something about them now. Not tomorrow. Not next week. But today. The true entrepreneur is a doer, not a dreamer." This quote stresses the importance of taking action in order to make progress and achieve success. In life, it is not enough to simply have an idea - we must have the courage and determination to take the necessary steps to make it happen. Only by actually doing something can we turn our dreams into reality.
+Having an idea is only the first step to achieving success. As Todd Garland, founder of BuySellAds, said: "Openly share and talk to people about your idea. Use their lack of interest or doubt to fuel your motivation to make it happen." It's important to use criticism and negativity constructively, as it can help to motivate you and push you to reach your goals. Quote: "Success is not the key to happiness. Happiness is the key to success. ― Albert Schweitzer
 
 <!-- </quote> -->
 

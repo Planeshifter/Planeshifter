@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all want to achieve success, but it's often easier said than done. As Howard Schultz said: "Risk more than others think is safe. Dream more than others think is practical." It's a difficult balance, but it's essential to reach our goals. Take risks, dare to dream and don't be afraid to reach for the stars.
+If you want to build a successful business, you need to be smart with your hiring. As Peter Berg, founder of October Three, said: "Be really picky with your hiring, and hire the absolute best people you possibly can". Your team is what will determine the success of your business, so it's important to take your time to find the right people.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-If you want to build a successful business, you need to be smart with your hiring. As Peter Berg, founder of October Three, said: "Be really picky with your hiring, and hire the absolute best people you possibly can". Your team is what will determine the success of your business, so it's important to take your time to find the right people.
+Why bother if all obstacles must be cleared first? Because nothing will get done. Or, as Samuel Johnson said, Nothing will ever be attempted if all possible objections must first be overcome. This quote reminds us that it is not enough to just see the potential benefits of a task, but that we must take action in order to get something done. In our lives, this means that if we want to achieve our goals, we must be willing to take risks and overcome any obstacles that stand in our way.
 
 <!-- </quote> -->
 

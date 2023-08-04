@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Nobody is perfect. As William Rosenberg, founder of Dunkin' Donuts said: "Show me a person who never made a mistake, and I will show you a person who never did anything". Mistakes are a part of life and there's no reason to fear them. It's important to learn from our mistakes and keep moving forward.
+Success never comes from complacency. As Jimmy Spithill, Australian yachtsman, said: "Rarely have I seen a situation where doing less than the other guy is a good strategy". This means we have to take risks, set ambitious goals, and consistently work hard to reach our goals and surpass our competition.
 
 <!-- </quote> -->
 

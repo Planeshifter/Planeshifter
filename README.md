@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What does the road to success look like? The only journey is the one within. J: Or, as Rainer Maria Rilke said, "The only journey is the one within." Explanation: The quote implies that self-reflection and taking time to focus on personal growth are essential in one's life journey. This is important because it reminds us to focus on our inner selves in order to make progress in our lives. To achieve our goals, we must take time to evaluate our thoughts, feelings, and actions. Taking time to focus on ourselves helps us to become the best versions of ourselves and realize our true potential.
+Creativity and originality are important, but they are not enough to achieve success. In the modern world of business, as David Ogilvy said, "it is useless to be a creative, original thinker unless you can also sell what you create". This means that we need to be able to market our ideas and skills in order to make them successful.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You can't just throw any feature into a project and expect it to work. As Noah Everett from Twitpic says: "A poorly implemented feature hurts more than not having it at all". It's important to take the time to make sure all features are properly thought out and implemented. This can make all the difference between success and failure.
+What do dreamers do? Shape the future. Or, as Eleanor Roosevelt said, "The future belongs to those who believe in the beauty of their dreams." This quote encourages us to believe in the potential of our dreams, and to have the courage to pursue them. It is an important reminder that we have the power to create the future we want, and that our dreams have the potential to become a reality. By believing in our dreams, we can take steps to make them happen and ultimately shape our own futures.
 
 <!-- </quote> -->
 

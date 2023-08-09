@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What do dreamers do? Shape the future. Or, as Eleanor Roosevelt said, "The future belongs to those who believe in the beauty of their dreams." This quote encourages us to believe in the potential of our dreams, and to have the courage to pursue them. It is an important reminder that we have the power to create the future we want, and that our dreams have the potential to become a reality. By believing in our dreams, we can take steps to make them happen and ultimately shape our own futures.
+What takes more effort to do, great things or commanding them? Commanding them. Or, as Friedrich Nietzsche said, “To do great things is difficult; but to command great things is more difficult.” This emphasizes the challenge of leading, rather than being led, and the importance of taking initiative and demonstrating strong leadership. This quote is important to me, as a personal trainer and self-help guru, because inspiring others to reach their potential requires a great deal of guidance, determination and hard work.
 
 <!-- </quote> -->
 

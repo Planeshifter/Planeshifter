@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Thomas Edison said it best: "Opportunity is missed by most people because it is dressed in overalls and looks like work." Too often, we miss out on our greatest achievements because we're not willing to put in the hard work to get there. But with the right attitude and determination, success is within our reach.
+Leadership is an essential skill in life. As E.M. Kelly said: "The difference between a boss and a leadea boss says, ‘Go!’ -a leader says, ‘Let’s go!’". A leader shows enthusiasm and optimism, and people will follow if they see their leader is willing to take the journey with them.
 
 <!-- </quote> -->
 

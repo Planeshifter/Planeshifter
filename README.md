@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Are our accomplishments really what matters? No, our aspirations do. Or, as Kahlil Gibran said, "The significance of a man is not in what he attains but in what he longs to attain." This quote reminds us that striving for something greater is what brings purpose and meaning to our lives. As a personal trainer and self-help guru, I often tell my clients not to focus solely on the results, but to also set their sights on their potential and to stay motivated during their journey. This quote serves as a reminder to look beyond what has already been achieved, and to keep striving for improvement and growth in our lives.
+Success is not simply a matter of luck. As Earl Wilson said: "Success is simply a matter of luck. Ask any failure." Sure, there are many fortunate events that can play a role in our achievements, but it takes hard work, persistence and dedication to get to the top.
 
 <!-- </quote> -->
 

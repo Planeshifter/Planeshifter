@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Enduring success is hard to come by. As Jim Collins said: "The challenge is not just to build a company that can endure; but to build one that is worthy of enduring." It takes more than just strength and resilience - it takes a commitment to excellence and integrity. Companies that can rise to this challenge can stand the test of time.
+Success is often a matter of timing and discretion. Chris Dixon, co-founder of Hunch, said: "Get big quietly, so you don’t tip off potential competitors". Taking a slow and steady approach to growth is key to staying ahead in the game and avoiding unwanted attention.
 
 <!-- </quote> -->
 

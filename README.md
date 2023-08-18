@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What's the best way to find success? Take the next bus that comes along. Or, as Richard Branson said, "Business opportunities are like buses - there's always another one coming." This quote stresses the importance of taking risks and seizing opportunities that come your way. As personal trainers and self-help gurus, it is important to remind our clients that they should never be afraid to take chances and explore new possibilities. If they miss out on one opportunity, there will always be another.
+Success doesn't come easy. As Zig Ziglar said: "You were born to win, but to be a winner, you must plan to win, prepare to win, and expect to win." It takes dedication and hard work to achieve our goals, but with the right attitude, anything is possible.
 
 <!-- </quote> -->
 

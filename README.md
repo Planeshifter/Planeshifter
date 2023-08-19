@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success doesn't come easy. As Zig Ziglar said: "You were born to win, but to be a winner, you must plan to win, prepare to win, and expect to win." It takes dedication and hard work to achieve our goals, but with the right attitude, anything is possible.
+Why is a leader only as strong as their team? Because a leader's power relies on their team's strength. Or, as General Douglas MacArthur said, "A general is just as good or just as bad as the troops under his command make him." This quote emphasizes the importance of team strength and cooperation, as a leader's success depends on the effectiveness of the team they are leading. This is an important reminder to stay humble and to recognize the importance of working together, as individual success is only achieved through collective effort.
 
 <!-- </quote> -->
 

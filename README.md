@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Why is a leader only as strong as their team? Because a leader's power relies on their team's strength. Or, as General Douglas MacArthur said, "A general is just as good or just as bad as the troops under his command make him." This quote emphasizes the importance of team strength and cooperation, as a leader's success depends on the effectiveness of the team they are leading. This is an important reminder to stay humble and to recognize the importance of working together, as individual success is only achieved through collective effort.
+What percentage do you have to take to get it right? You have to take at least one shot to have any chance of success. Or, as Wayne Gretzky said, "You miss 100 percent of the shots you don't take." This quote is a reminder to take action and take risks if you want to achieve something. It emphasizes the idea of not giving up, even if the odds seem slim. This relates to my daily life because it encourages me to take the necessary steps to reach my goals, instead of giving up too soon or not taking any action at all.
 
 <!-- </quote> -->
 

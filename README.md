@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Having a great idea is not enough on its own. As Michael Dell said: "Ideas are commodity. Execution of them is not." In order to bring your ideas to life, you need to have the courage and determination to see them through. Knowing how to carry out a plan is just as important as having the idea in the first place.
+Never be satisfied with what you have. As Syed Balkhi said: "You should always stay hungry. Stay hungry, so you can eat". Life is a journey and it’s important to always strive for more and never give up. Keeping your hunger alive will help you stay motivated and make progress.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Never be satisfied with what you have. As Syed Balkhi said: "You should always stay hungry. Stay hungry, so you can eat". Life is a journey and it’s important to always strive for more and never give up. Keeping your hunger alive will help you stay motivated and make progress.
+It's important to surround yourself with people who have a growth mindset. As Mark Twain said: "Keep away from people who try to belittle your ambitions. Small people always do that, but the really great make you feel that you, too, can become great". A positive, supportive environment is key to achieving success.
 
 <!-- </quote> -->
 

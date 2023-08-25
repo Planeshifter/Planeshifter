@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What does the changing of the seasons bring? Change and acceptance. Or, as Henry David Thoreau said, "Live in each season as it passes; breathe the air, drink the drink, taste the fruit, and resign yourself to the influences of each." This quote encourages us to live in the present moment, to accept the change that each season brings, and to make the most of the experiences it has to offer. This is an important reminder in our lives, as we can often become overwhelmed by the increasing demands of daily life and forget to take time to appreciate the beauty of each new season.
+Success isn't a destination we reach, but a journey we're on. As Thomas J. Watson said, “Whenever an individual or a business decides that success has been attained, progress stops”. We must always strive to keep improving and growing, otherwise our journey to success is at a dead end.
 
 <!-- </quote> -->
 

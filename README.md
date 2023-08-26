@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success isn't a destination we reach, but a journey we're on. As Thomas J. Watson said, “Whenever an individual or a business decides that success has been attained, progress stops”. We must always strive to keep improving and growing, otherwise our journey to success is at a dead end.
+Nothing worthwhile ever comes easy. As Sean Parker said: "Running a start-up is like eating glass. You just start to like the taste of your own blood." It takes an immense amount of dedication and hard work to achieve success in a start-up. But with the right motivation and commitment, we can overcome any challenge and reach our destination.
 
 <!-- </quote> -->
 

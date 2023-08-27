@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Nothing worthwhile ever comes easy. As Sean Parker said: "Running a start-up is like eating glass. You just start to like the taste of your own blood." It takes an immense amount of dedication and hard work to achieve success in a start-up. But with the right motivation and commitment, we can overcome any challenge and reach our destination.
+Hard work and dedication are key factors in achieving success. As Joe Penna said: "Every single person I know who is successful at what they do is successful because they love doing it". To be successful, you need to have a genuine passion for what you do and put in the effort to make it happen.
 
 <!-- </quote> -->
 

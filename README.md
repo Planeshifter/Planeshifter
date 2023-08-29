@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Nobody is perfect. As William Rosenberg, founder of Dunkin' Donuts said: "Show me a person who never made a mistake, and I will show you a person who never did anything". Mistakes are a part of life and there's no reason to fear them. It's important to learn from our mistakes and keep moving forward.
+It‘s never too late to become the best version of yourself. As George Eliot said: “It is never too late to be what you might have been”. We have the power to define our own destiny, regardless of our circumstances or age. We can always be the person we want to be and fulfill our potential in life.
 
 <!-- </quote> -->
 

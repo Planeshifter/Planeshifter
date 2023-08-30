@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It‘s never too late to become the best version of yourself. As George Eliot said: “It is never too late to be what you might have been”. We have the power to define our own destiny, regardless of our circumstances or age. We can always be the person we want to be and fulfill our potential in life.
+What can grumpy people teach us? A great deal. Or, as Bill Gates, co-founder of Microsoft said, "Your most unhappy customers are your greatest source of learning." This statement encourages us to look beyond the negative and use negative experiences as an opportunity to gain new insights and knowledge. This quote is important to me because it provides a valuable lesson that I can apply to my personal training and self-help business: taking the time to understand my clients' feedback can help me to make better decisions for them and for my business in the long run.
 
 <!-- </quote> -->
 

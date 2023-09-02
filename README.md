@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-When it comes to life, it pays to be daring. As the anonymous quote says, “If you’re not living life on the edge, you’re taking up too much space.” Taking risks might be uncomfortable, but it’s essential for growth. Without pushing our boundaries, we won’t be able to reach our full potential.
+Success is a journey, not a destination. As Bill Gates said: "It’s fine to celebrate success but it is more important to heed the lessons of failure". We must all learn from our mistakes, so that we can continue to grow and reach our goals. Failure is a part of life, but it should never stop us from trying again.
 
 <!-- </quote> -->
 

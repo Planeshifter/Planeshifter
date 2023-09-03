@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is a journey, not a destination. As Bill Gates said: "It’s fine to celebrate success but it is more important to heed the lessons of failure". We must all learn from our mistakes, so that we can continue to grow and reach our goals. Failure is a part of life, but it should never stop us from trying again.
+Leadership is key to success. Charles Maurice said it best when he proclaimed, "I am more afraid of an army of one hundred sheep led by a lion than an army of one hundred lions led by a sheep." True leaders don't just follow the crowd, they have the courage and conviction to blaze their own path and inspire others to follow.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Leadership is key to success. Charles Maurice said it best when he proclaimed, "I am more afraid of an army of one hundred sheep led by a lion than an army of one hundred lions led by a sheep." True leaders don't just follow the crowd, they have the courage and conviction to blaze their own path and inspire others to follow.
+Success doesn’t come easy. We need to put in the hard work if we want to make an impact. Ryan P. Allis said it best: “Not a single person whose name is worth remembering lived a life of ease.” If we truly want to make our mark and be remembered, we need to challenge ourselves and strive for greatness.
 
 <!-- </quote> -->
 

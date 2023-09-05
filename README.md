@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success doesn’t come easy. We need to put in the hard work if we want to make an impact. Ryan P. Allis said it best: “Not a single person whose name is worth remembering lived a life of ease.” If we truly want to make our mark and be remembered, we need to challenge ourselves and strive for greatness.
+Success doesn't come easy. As Zig Ziglar said: "You were born to win, but to be a winner, you must plan to win, prepare to win, and expect to win." It takes dedication and hard work to achieve our goals, but with the right attitude, anything is possible.
 
 <!-- </quote> -->
 

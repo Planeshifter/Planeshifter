@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success doesn't come easy. As Zig Ziglar said: "You were born to win, but to be a winner, you must plan to win, prepare to win, and expect to win." It takes dedication and hard work to achieve our goals, but with the right attitude, anything is possible.
+What kind of leader accelerates growth? A great one! Or, as John C. Maxwell said, "While a good leader sustains momentum, a great leader increases it." This quote speaks to the importance of strong and effective leadership in any organization. Great leaders can help make their teams more productive, efficient, and successful. The same is true in our personal lives; having the right kind of leader can help us reach our own goals and dreams more quickly.
 
 <!-- </quote> -->
 

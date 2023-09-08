@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-How do you think of the future? One day at a time. Or, as Albert Einstein said, "I never think of the future - it comes soon enough." This quote is a reminder to focus on the present and the decisions we make today, rather than worrying too much about the future, as it will come soon enough. In our busy lives, it is important to remember to focus on today's actions and choices, as they will shape our tomorrow and our future.
+How long does it take to do anything? As long as it takes! Or, as Helen Keller said, "We can do anything we want to do if we stick to it long enough." This quote encourages us to persist in the face of difficulties, no matter how long it takes. This applies to our daily lives when we set goals, as we may hit roadblocks or experience discouragement along the way. However, if we stick with it, we can eventually attain our goals.
 
 <!-- </quote> -->
 

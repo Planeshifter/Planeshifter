@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-William James once said: "The best use of life is to spend it for something that outlasts it". This is a reminder to focus on pursuits with lasting value instead of chasing fleeting pleasures. We should strive to make an impact that will outlive us instead of living in the moment.
+You reap what you sow. As the Chinese proverb says: “If you pay peanuts, you get monkeys.” If you expect quality work and results, you must be willing to invest in the right people and resources. You can’t expect exceptional performance from those who are not properly rewarded.
 
 <!-- </quote> -->
 

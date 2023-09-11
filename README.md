@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You reap what you sow. As the Chinese proverb says: “If you pay peanuts, you get monkeys.” If you expect quality work and results, you must be willing to invest in the right people and resources. You can’t expect exceptional performance from those who are not properly rewarded.
+In order to reach success, we need to have the vision to imagine it. As John Lennon said: "You won’t get anything unless you have the vision to imagine it." We have to have the courage to dream big and to have faith that our dreams can come true.
 
 <!-- </quote> -->
 

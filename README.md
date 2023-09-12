@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-In order to reach success, we need to have the vision to imagine it. As John Lennon said: "You won’t get anything unless you have the vision to imagine it." We have to have the courage to dream big and to have faith that our dreams can come true.
+William James once said: "The best use of life is to spend it for something that outlasts it". This is a reminder to focus on pursuits with lasting value instead of chasing fleeting pleasures. We should strive to make an impact that will outlive us instead of living in the moment.
 
 <!-- </quote> -->
 

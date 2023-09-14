@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is not a straight path, it is full of challenges. As the Asian Proverb says: "Building a castle is difficult. Defending and maintaining it is harder still". To reach our goals and sustain them, we must have the resilience to persevere even in the toughest of times.
+No matter how hard life knocks you down, never give up. As General George Patton said: "Success is how high you bounce after you hit bottom". Even when you are at your lowest, there is always the possibility to come back and make something out of yourself. Don't give up on your dreams and always strive for better.
 
 <!-- </quote> -->
 

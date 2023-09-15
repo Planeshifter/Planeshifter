@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No matter how hard life knocks you down, never give up. As General George Patton said: "Success is how high you bounce after you hit bottom". Even when you are at your lowest, there is always the possibility to come back and make something out of yourself. Don't give up on your dreams and always strive for better.
+Where should you look to keep going? Upward! Or, as Charlotte Bronte said, "I avoid looking forward or backward, and try to keep looking upward." This quote emphasizes the importance of staying focused on the future and looking ahead, instead of dwelling on the past. This is important to keep in mind, as focusing on the future instead of the past can lead to greater success and improved well-being.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Knowledge is the key to success and education is the door. As the Chinese Proverb says, "Teachers open the door. You enter by yourself". No one can make your dreams come true for you, you have to take the initiative and do it yourself.
+Live with purpose. As Mooie said, one day your life will flash before your eyes. Make sure that when that day comes, you have created a life worth looking back on. Fill your life with meaningful moments, experiences and relationships, and it will be worth watching.
 
 <!-- </quote> -->
 

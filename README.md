@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Why can't you please everyone? You can't please everyone. Or, as Herbert Bayard Swope said, "I cannot give you the formula for success, but I can give you the formula for failure - which is: Try to please everybody." This quote recognizes that it is generally not possible to please everyone and that trying to do so can be a recipe for failure. It reminds us to stay focused on our own goals and not worry too much about what others think. In our daily lives, this quote reminds us to stay true to ourselves and our values, rather than trying to live up to everyone else's expectations.
+Words have the power to create or destroy relationships. As John Rampton said: "You can say anything to anyone, but how you say it will determine how they will react". Whether we are talking to friends, family or colleagues, it's important to be mindful of how we communicate and to choose our words wisely.
 
 <!-- </quote> -->
 

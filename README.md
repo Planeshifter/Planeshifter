@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Words have the power to create or destroy relationships. As John Rampton said: "You can say anything to anyone, but how you say it will determine how they will react". Whether we are talking to friends, family or colleagues, it's important to be mindful of how we communicate and to choose our words wisely.
+You don’t have to force yourself to like something; it will come naturally. As Jeff Bezos said: "One of the huge mistakes people make is that they try to force an interest on themselves. You don’t choose your passions; your passions choose you." So follow your heart, and you will discover your true passion and purpose in life.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all have unique skills and talents. As Albert Einstein said “Everyone is a genius. But if you judge a fish by its ability to climb a tree, it will spend its whole life believing it is stupid.” We should strive to appreciate and nurture our individual gifts instead of expecting them to conform to set standards.
+As George Burns said, it's better to fail at something we love than to be successful at something we dislike. Success without passion and joy is hollow. Life is too short to waste it on something we don't enjoy. It's important to find something we enjoy, and be passionate and determined to work hard to succeed.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-How can we stay strong in difficult times? Never give in, no matter the opposition. Or, as Winston Churchill said, "Never, never, never, never, in nothing great or small, large or petty, never give in except to convictions of honour and good sense. Never yield to force; never yield to the apparently overwhelming might of the enemy." Self-control, resilience, and perseverance are essential for success and Churchill's quote is a reminder to never give in, no matter the challenge. This quote relates to our daily lives because it encourages us to stay focused on our goals and objectives, and to keep striving for them no matter the obstacles that we might face.
+Adaptability is key to success. Victoria Ransom, co-founder of Wildfire Interactive, said it best: "Even if you don't have the perfect idea to begin with, you can likely adapt". This is true in almost any endeavor; adjusting our plans and expectations to fit reality is how we make progress.
 
 <!-- </quote> -->
 

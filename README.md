@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Adaptability is key to success. Victoria Ransom, co-founder of Wildfire Interactive, said it best: "Even if you don't have the perfect idea to begin with, you can likely adapt". This is true in almost any endeavor; adjusting our plans and expectations to fit reality is how we make progress.
+If you want to build a successful business, you need to be smart with your hiring. As Peter Berg, founder of October Three, said: "Be really picky with your hiring, and hire the absolute best people you possibly can". Your team is what will determine the success of your business, so it's important to take your time to find the right people.
 
 <!-- </quote> -->
 

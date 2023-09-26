@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-If you want to build a successful business, you need to be smart with your hiring. As Peter Berg, founder of October Three, said: "Be really picky with your hiring, and hire the absolute best people you possibly can". Your team is what will determine the success of your business, so it's important to take your time to find the right people.
+Yoda's words of wisdom remind us that there is no room for excuses. As he said: "Do or do not. There is no try". We must be willing to take risks and commit to a course of action if we are serious about achieving success. Otherwise, our efforts will amount to nothing.
 
 <!-- </quote> -->
 

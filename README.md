@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Competition is a part of life, but it's not for everyone. As the saying goes, "If you don’t have a competitive advantage ― don’t compete". It's not just about winning, but it's about setting yourself up for success by ensuring that you have the right resources and skills to be successful. Before entering a competition, it's important to make sure that you have an advantage that can help you stand out from the crowd.
+You can't just throw any feature into a project and expect it to work. As Noah Everett from Twitpic says: "A poorly implemented feature hurts more than not having it at all". It's important to take the time to make sure all features are properly thought out and implemented. This can make all the difference between success and failure.
 
 <!-- </quote> -->
 

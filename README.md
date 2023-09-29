@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You can't just throw any feature into a project and expect it to work. As Noah Everett from Twitpic says: "A poorly implemented feature hurts more than not having it at all". It's important to take the time to make sure all features are properly thought out and implemented. This can make all the difference between success and failure.
+If you want to build an exceptional team, you'll need exceptional people. As Marc Benioff, CEO of Salesforce, said: "The secret to successful hiring is this: look for the people who want to change the world." It's not just about who has the right skillset, it's about seeking out people who are motivated and passionate.
 
 <!-- </quote> -->
 

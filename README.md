@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-If you want to build an exceptional team, you'll need exceptional people. As Marc Benioff, CEO of Salesforce, said: "The secret to successful hiring is this: look for the people who want to change the world." It's not just about who has the right skillset, it's about seeking out people who are motivated and passionate.
+Where should you look to keep going? Upward! Or, as Charlotte Bronte said, "I avoid looking forward or backward, and try to keep looking upward." This quote emphasizes the importance of staying focused on the future and looking ahead, instead of dwelling on the past. This is important to keep in mind, as focusing on the future instead of the past can lead to greater success and improved well-being.
 
 <!-- </quote> -->
 

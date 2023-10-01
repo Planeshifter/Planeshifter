@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Where should you look to keep going? Upward! Or, as Charlotte Bronte said, "I avoid looking forward or backward, and try to keep looking upward." This quote emphasizes the importance of staying focused on the future and looking ahead, instead of dwelling on the past. This is important to keep in mind, as focusing on the future instead of the past can lead to greater success and improved well-being.
+The best way to attain success is to trust yourself. As Ben Silbermann, co-founder of Pinterest said: "Don’t take too much advice. Most people who have a lot of advice to give... Just build things and find out if they work." We should take risks, act with confidence and not overthink every decision. That’s how innovation and genuine progress will take place.
 
 <!-- </quote> -->
 

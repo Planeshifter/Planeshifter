@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What happens when someone looks within?  They awaken. Or, as Carl Jung said, "Who looks outside, dreams. Who looks inside, awakes." The quote encourages us to look inward and be aware of our inner thoughts and feelings. By doing so, we can gain clarity on our life purpose and make decisions that are in alignment with who we truly are. This is important to our daily life because it allows us to make conscious choices that reflect our individual values and lead us to a more fulfilling life.
+Taking risks is the only way to achieve success. As Casey Neistat, filmmaker said: “Every time I took these bigger risks, the opportunity for a bigger payout was always there.” We must be brave and go beyond our comfort zone if we truly want to reach our goals.
 
 <!-- </quote> -->
 

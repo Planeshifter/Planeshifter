@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Taking risks is the only way to achieve success. As Casey Neistat, filmmaker said: “Every time I took these bigger risks, the opportunity for a bigger payout was always there.” We must be brave and go beyond our comfort zone if we truly want to reach our goals.
+As Larry Page, CEO of Google, says: "Lots of companies don’t succeed over time. What do they fundamentally do wrong? They usually miss the future." This is a warning to all companies: the key to success is to be able to keep up with the trend and embrace change. Companies who fail to do this will eventually fall behind.
 
 <!-- </quote> -->
 

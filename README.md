@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-As Larry Page, CEO of Google, says: "Lots of companies don’t succeed over time. What do they fundamentally do wrong? They usually miss the future." This is a warning to all companies: the key to success is to be able to keep up with the trend and embrace change. Companies who fail to do this will eventually fall behind.
+Success in business is not easy to achieve. As David Rockefeller said: "Success in business requires training and discipline and hard work." We must be willing to put in the effort and take on the challenge to create something truly impactful. With hard work and dedication, the opportunities are just as great today as ever before.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success in business is not easy to achieve. As David Rockefeller said: "Success in business requires training and discipline and hard work." We must be willing to put in the effort and take on the challenge to create something truly impactful. With hard work and dedication, the opportunities are just as great today as ever before.
+Dreams don't just come true; we have to take action to make them happen. As the Chinese Proverb goes: "Don’t stand by the water and long for fish; go home and weave a net." Taking the initiative and being proactive are essential in achieving success.
 
 <!-- </quote> -->
 

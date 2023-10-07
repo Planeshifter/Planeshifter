@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Dreams don't just come true; we have to take action to make them happen. As the Chinese Proverb goes: "Don’t stand by the water and long for fish; go home and weave a net." Taking the initiative and being proactive are essential in achieving success.
+No one can deny the importance of a good education. However, Jim Rohn, the author and speaker, points out that education should not be limited to the classroom. He says: "Formal education will make you a living; self-education will make you a fortune." Self-education is just as necessary and can be the difference between a good life and a great one.
 
 <!-- </quote> -->
 

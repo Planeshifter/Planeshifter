@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No one can deny the importance of a good education. However, Jim Rohn, the author and speaker, points out that education should not be limited to the classroom. He says: "Formal education will make you a living; self-education will make you a fortune." Self-education is just as necessary and can be the difference between a good life and a great one.
+Our society often praises realism and practicality, but Will Smith reminds us that those are the most common paths to mediocrity. If we want to reach our full potential, we need to be bold and embrace the unknown. We need to take risks and go beyond what is considered ‘realistic’.
 
 <!-- </quote> -->
 

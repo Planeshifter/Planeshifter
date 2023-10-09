@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Our society often praises realism and practicality, but Will Smith reminds us that those are the most common paths to mediocrity. If we want to reach our full potential, we need to be bold and embrace the unknown. We need to take risks and go beyond what is considered ‘realistic’.
+What should you do if trouble clouds your vision? Keep in the sunlight. Or, as Benjamin Franklin said, "Do not anticipate trouble or worry about what may never happen. Keep in the sunlight." This quote emphasizes the importance of being in the present moment and not worrying about future problems. It is important to stay focused on the here and now and not anticipate problems that may never come. This mindset helps us to enjoy life more and to be more mindful of our goals and ambitions.
 
 <!-- </quote> -->
 

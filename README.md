@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is not simply a matter of luck. As Earl Wilson said: "Success is simply a matter of luck. Ask any failure." Sure, there are many fortunate events that can play a role in our achievements, but it takes hard work, persistence and dedication to get to the top.
+It's easy to doubt those who are trying to achieve greatness. As the Chinese Proverb says: "A person who says it cannot be done should not interrupt the man doing it." We should instead show our support and help those who are brave enough to pursue their dreams.
 
 <!-- </quote> -->
 

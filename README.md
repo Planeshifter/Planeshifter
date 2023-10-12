@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's easy to doubt those who are trying to achieve greatness. As the Chinese Proverb says: "A person who says it cannot be done should not interrupt the man doing it." We should instead show our support and help those who are brave enough to pursue their dreams.
+What's the simplest way to get ahead? Do something now. Or, as Nolan Bushnell said, "The critical ingredient is getting off your butt and doing something. It’s as simple as that. A lot of people have ideas, but there are few who decide to do something about them now. Not tomorrow. Not next week. But today. The true entrepreneur is a doer, not a dreamer." This quote stresses the importance of taking action in order to make progress and achieve success. In life, it is not enough to simply have an idea - we must have the courage and determination to take the necessary steps to make it happen. Only by actually doing something can we turn our dreams into reality.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Taking risks is part of being an entrepreneur. As Roy Ash once said, “An entrepreneur tends to bite off a little more than he can chew hoping he’ll quickly learn how to chew it.” Though it can be daunting to take on a challenge that seems too big to handle, it’s important to remember that you have the potential to achieve it.
+Opportunity often comes disguised in the form of hard work. As Thomas Edison said: "Opportunity is missed by most people because it is dressed in overalls and looks like work". We should never shy away from a challenge, because that might just be the very thing that leads us to success.
 
 <!-- </quote> -->
 

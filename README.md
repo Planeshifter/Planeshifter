@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Opportunity often comes disguised in the form of hard work. As Thomas Edison said: "Opportunity is missed by most people because it is dressed in overalls and looks like work". We should never shy away from a challenge, because that might just be the very thing that leads us to success.
+Henry Ford had a great vision for his business. He said "A business that makes nothing but money is a poor business." This is a reminder that success can’t just be measured in dollars and cents. To be successful, a business needs to provide value and satisfaction to its customers. Money is just the reward for a job well done.
 
 <!-- </quote> -->
 

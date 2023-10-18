@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Creativity and originality are important, but they are not enough to achieve success. In the modern world of business, as David Ogilvy said, "it is useless to be a creative, original thinker unless you can also sell what you create". This means that we need to be able to market our ideas and skills in order to make them successful.
+Tim Westergen, founder of Pandora, is right when he said: "Make your team feel respected, empowered and genuinely excited about the company’s mission". Having a motivated and dedicated team is a key factor to success. It is important to create a positive and encouraging environment where employees can work to the best of their ability and be proud of the work they do.
 
 <!-- </quote> -->
 

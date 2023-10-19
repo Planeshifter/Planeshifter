@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Tim Westergen, founder of Pandora, is right when he said: "Make your team feel respected, empowered and genuinely excited about the company’s mission". Having a motivated and dedicated team is a key factor to success. It is important to create a positive and encouraging environment where employees can work to the best of their ability and be proud of the work they do.
+It's easy to doubt those who are trying to achieve greatness. As the Chinese Proverb says: "A person who says it cannot be done should not interrupt the man doing it." We should instead show our support and help those who are brave enough to pursue their dreams.
 
 <!-- </quote> -->
 

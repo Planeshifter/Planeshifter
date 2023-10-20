@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's easy to doubt those who are trying to achieve greatness. As the Chinese Proverb says: "A person who says it cannot be done should not interrupt the man doing it." We should instead show our support and help those who are brave enough to pursue their dreams.
+It’s never too late to start working towards your goals. As the Chinese proverb goes: "The best time to plant a tree was 20 years ago. The second best time is now". Our past does not define us, and it’s never too late to make a positive change.
 
 <!-- </quote> -->
 

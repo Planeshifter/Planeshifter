@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It’s never too late to start working towards your goals. As the Chinese proverb goes: "The best time to plant a tree was 20 years ago. The second best time is now". Our past does not define us, and it’s never too late to make a positive change.
+Entrepreneurship is a journey that requires you to take risks that most people won't in order to achieve success. As Anonymous said, "Entrepreneurship is living a few years of your life like most people won't, so that you can spend the rest of your life like most people can't". It is going the extra mile and giving it your all every day to create something amazing.
 
 <!-- </quote> -->
 

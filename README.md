@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all have a finite amount of time to create the life we want. As Steve Jobs said: "Your time is limited, so don’t waste it living someone else’s life. Don’t be trapped by dogma ― which is living with the results of other people’s thinking. Don’t let the noise of other’s opinions drown out your own inner voice. And most important, have the courage to follow your heart and intuition. They somehow already know what you truly want to become. Everything else is secondary.” Make sure you take the time to listen to your intuition, and then take the steps necessary to make it come alive.
+What comes with more effort? Greater rewards. Or, as Horace Bushnell said, "The more difficulties one has to encounter, within and without, the more significant and the higher in inspiration his life will be." This quote demonstrates the importance of hard work and perseverance, as the more difficult something is, the more rewarding it can be. This is especially relevant to personal trainers and self-help gurus, as the same principles apply to their work: difficult goals are often the most rewarding. With dedication, patience, and grit, any challenge can be conquered and lasting results can be achieved.
 
 <!-- </quote> -->
 

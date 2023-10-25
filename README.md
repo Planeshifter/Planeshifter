@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What comes with more effort? Greater rewards. Or, as Horace Bushnell said, "The more difficulties one has to encounter, within and without, the more significant and the higher in inspiration his life will be." This quote demonstrates the importance of hard work and perseverance, as the more difficult something is, the more rewarding it can be. This is especially relevant to personal trainers and self-help gurus, as the same principles apply to their work: difficult goals are often the most rewarding. With dedication, patience, and grit, any challenge can be conquered and lasting results can be achieved.
+Adaptability is key to success. Victoria Ransom, co-founder of Wildfire Interactive, said it best: "Even if you don't have the perfect idea to begin with, you can likely adapt". This is true in almost any endeavor; adjusting our plans and expectations to fit reality is how we make progress.
 
 <!-- </quote> -->
 

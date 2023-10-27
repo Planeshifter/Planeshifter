@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success requires hard work. As Maya Angelou said: "Nothing will work unless you do". We can't expect that things will just fall into place without any effort. We need to take action, be determined and keep pushing forward in order to reach our goals.
+What is the cure for all of life's ills? Wisdom. Or, as Thomas Huxley said, "The only medicine for suffering, crime, and all the other woes of mankind, is wisdom." Wisdom can help us to better understand our experiences and make smart decisions. In our daily life, wisdom can guide us to make better choices that will benefit us and the people around us.
 
 <!-- </quote> -->
 

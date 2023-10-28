@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is the cure for all of life's ills? Wisdom. Or, as Thomas Huxley said, "The only medicine for suffering, crime, and all the other woes of mankind, is wisdom." Wisdom can help us to better understand our experiences and make smart decisions. In our daily life, wisdom can guide us to make better choices that will benefit us and the people around us.
+Complaints don't have to be seen as a sign of failure. As Zig Ziglar says: "Statistics suggest that when customers complain, business owners and managers ought to get excited about it. The complaining customer represents a huge opportunity for more business." Complaints provide us with valuable insights, and if we can address the issues and make things right, the customer may even become a loyal advocate for our business. Quote: “If you can dream it, you can do it.” ― Walt Disney
 
 <!-- </quote> -->
 

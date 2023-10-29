@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Complaints don't have to be seen as a sign of failure. As Zig Ziglar says: "Statistics suggest that when customers complain, business owners and managers ought to get excited about it. The complaining customer represents a huge opportunity for more business." Complaints provide us with valuable insights, and if we can address the issues and make things right, the customer may even become a loyal advocate for our business. Quote: “If you can dream it, you can do it.” ― Walt Disney
+What's the key to success? Knowing something no one else knows. Or, as Aristotle Onassis said, "The secret of success is to know something nobody else knows." This implies the importance of having knowledge or skills that are rare and valuable. This quote is incredibly relevant in today's world, as having that extra knowledge or skill can help you stand out in a competitive job market or lead to success in other areas of life.
 
 <!-- </quote> -->
 

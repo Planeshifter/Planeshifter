@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success isn't a destination we reach, but a journey we're on. As Thomas J. Watson said, “Whenever an individual or a business decides that success has been attained, progress stops”. We must always strive to keep improving and growing, otherwise our journey to success is at a dead end.
+What is the most important goal in life? To get ahead of ourselves. Or, as E. Joseph Cossman said, "Our business in life is not to get ahead of others, but to get ahead of ourselves." This quote encourages us to push our own boundaries instead of comparing ourselves to others. By focusing on our own success, rather than trying to beat others, we can be more productive and move forward in our goals. This quote is important to us because it reminds us that our own progress is the key to future success.
 
 <!-- </quote> -->
 

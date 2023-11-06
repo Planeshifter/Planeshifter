@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-The people you surround yourself with have a major influence on who you are. As Booker T. Washington said: "Associate yourself with people of good quality, for it is better to be alone than in bad company." Who we spend our time with matters. When we choose our friends wisely, we can become better versions of ourselves.
+When starting a business, it's essential to plan for the unexpected. As Richard Harroch, Venture Capitalist, puts it: "It’s almost always harder to raise capital than you thought it would be, and it always takes longer. So plan for that." It's important to give yourself enough time and have a backup plan in case things take longer than expected.
 
 <!-- </quote> -->
 

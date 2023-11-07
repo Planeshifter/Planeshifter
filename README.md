@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-When starting a business, it's essential to plan for the unexpected. As Richard Harroch, Venture Capitalist, puts it: "It’s almost always harder to raise capital than you thought it would be, and it always takes longer. So plan for that." It's important to give yourself enough time and have a backup plan in case things take longer than expected.
+We all want to leave a lasting impression. As Larry Page, co-founder of Google, said: "Always deliver more than expected". Strive for excellence and exceed expectations with every task. This will make you stand out from the crowd and ensure that you make your mark.
 
 <!-- </quote> -->
 

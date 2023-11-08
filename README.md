@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all want to leave a lasting impression. As Larry Page, co-founder of Google, said: "Always deliver more than expected". Strive for excellence and exceed expectations with every task. This will make you stand out from the crowd and ensure that you make your mark.
+What's the path to success? Take risks and learn from them. Or, as Bobby Flay said, "Take risks and you'll get the payoffs. Learn from your mistakes until you succeed. It's that simple." This quote reminds us that success involves taking risks and learning from our mistakes. It's important to take risks in order to make progress in our lives and to achieve our goals. Taking risks allows us to grow and try new things, which can help us expand our horizons, build relationships, find new opportunities, and gain new experiences. Learning from our mistakes is also essential, as it helps us make better decisions and become wiser in the future.
 
 <!-- </quote> -->
 

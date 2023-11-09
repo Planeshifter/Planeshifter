@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What's the path to success? Take risks and learn from them. Or, as Bobby Flay said, "Take risks and you'll get the payoffs. Learn from your mistakes until you succeed. It's that simple." This quote reminds us that success involves taking risks and learning from our mistakes. It's important to take risks in order to make progress in our lives and to achieve our goals. Taking risks allows us to grow and try new things, which can help us expand our horizons, build relationships, find new opportunities, and gain new experiences. Learning from our mistakes is also essential, as it helps us make better decisions and become wiser in the future.
+Making your dreams come true takes a lot of hard work and dedication. As Nolan Bushnell said: "The critical ingredient is getting off your butt and doing something." Having an idea is easy, but it's only when you decide to take action and do something that your dreams become reality. Taking the first step is hard, but it's the only way to make progress. So don't waste time and start today!
 
 <!-- </quote> -->
 

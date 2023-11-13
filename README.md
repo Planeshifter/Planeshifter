@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all have dreams and aspirations, but achieving them takes hard work and dedication. As Ryan Allis said, "Have the end in mind and every day make sure your working towards it". This means that we must focus on our goals and put in the effort each day to move closer to them. Taking consistent action is the only way to make your dreams come true.
+Where should you look for happiness? Within yourself. Or, as Agnes Repplier said, "It is not easy to find happiness in ourselves, and it is not possible to find it elsewhere." This quote encourages us to look within ourselves to find true and lasting happiness. This is important because it reminds us that we are the only ones who can choose how to make ourselves happy. Happiness is not something that can be found in material items or external relationships - it must come from within.
 
 <!-- </quote> -->
 

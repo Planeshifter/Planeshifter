@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Where should you look for happiness? Within yourself. Or, as Agnes Repplier said, "It is not easy to find happiness in ourselves, and it is not possible to find it elsewhere." This quote encourages us to look within ourselves to find true and lasting happiness. This is important because it reminds us that we are the only ones who can choose how to make ourselves happy. Happiness is not something that can be found in material items or external relationships - it must come from within.
+Being an entrepreneur is not an easy feat. As Ted Turner said, "My son is now an 'entrepreneur'. That's what you're called when you don't have a job". It might be tough, but it can be rewarding. It requires hard work, dedication, and the ability to take risks.
 
 <!-- </quote> -->
 

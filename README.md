@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Being an entrepreneur is not an easy feat. As Ted Turner said, "My son is now an 'entrepreneur'. That's what you're called when you don't have a job". It might be tough, but it can be rewarding. It requires hard work, dedication, and the ability to take risks.
+We live in a world where knowledge and technology are becoming increasingly important. As Bill Gates said: "Be nice to geeks, you'll probably end up working for one". We should respect the intelligence and hard work of the geeks that contribute to the advancement of our society.
 
 <!-- </quote> -->
 

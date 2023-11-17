@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Make sure to never let self doubt stand in your way. As Theodore Roosevelt said: "Whenever you are asked if you can do a job, tell 'em, 'Certainly, I can!' Then get busy and find out how to do it." It's always important to have a positive attitude and never give up on achieving your goals.
+Success isn't always about being the best for everyone. According to Ron Shaich, founder and CEO of Panera Bread, “If you can do something to get somebody excited — not everybody — but if you can be the best for somebody, then you can win.” This means that if you focus on being the best for the people who matter, you will be successful.
 
 <!-- </quote> -->
 

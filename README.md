@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success can‘t be faked. As Anthony Volodkin, founder of Hype Machine says: "Be undeniably good. No marketing effort or social media buzzword can be a substitute for that". Only quality work and dedication will lead to success. Anything else is just a waste of time.
+What's the key to success? Knowing something no one else knows. Or, as Aristotle Onassis said, "The secret of success is to know something nobody else knows." This implies the importance of having knowledge or skills that are rare and valuable. This quote is incredibly relevant in today's world, as having that extra knowledge or skill can help you stand out in a competitive job market or lead to success in other areas of life.
 
 <!-- </quote> -->
 

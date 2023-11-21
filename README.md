@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Having the right strategy and mindset is key for long-term success. As the old saying goes, “It’s better to own the racecourse than the racehorse”. This means you should focus on building a strong foundation for success and make sure you have the proper tools and resources to reach your goals. This way, you will have a better chance of achieving your dreams.
+No matter how small or insignificant you may feel, never let anyone bring you down or belittle your ambitions. Remember, as Mark Twain said: “Keep away from people who try to belittle your ambitions. Small people always do that, but the really great make you feel that you, too, can become great.” Surround yourself with people who will lift you up and motivate you to be your best.
 
 <!-- </quote> -->
 

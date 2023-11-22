@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No matter how small or insignificant you may feel, never let anyone bring you down or belittle your ambitions. Remember, as Mark Twain said: “Keep away from people who try to belittle your ambitions. Small people always do that, but the really great make you feel that you, too, can become great.” Surround yourself with people who will lift you up and motivate you to be your best.
+In difficult times we have to have a special kind of courage to make it through. As Robert Kiyosaki said, “When times are bad is when the real entrepreneurs emerge”. We have to be willing to face the challenges, take risks, and persevere. Those are the qualities of a true entrepreneur.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Nothing comes easy, and to be successful, we have to be dedicated and passionate. Thomas J. Watson said it best: "To be successful, you have to have your heart in your business, and your business in your heart". We must do our best and put in the effort to reach our goals.
+Stepping out of our comfort zone is often the only way to achieve progress. As John Shedd said: "A ship in harbor is safe, but that’s not what ships are for". We must take chances and explore new horizons if we want to grow and succeed.
 
 <!-- </quote> -->
 

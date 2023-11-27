@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Stepping out of our comfort zone is often the only way to achieve progress. As John Shedd said: "A ship in harbor is safe, but that’s not what ships are for". We must take chances and explore new horizons if we want to grow and succeed.
+Making your dreams come true takes a lot of hard work and dedication. As Nolan Bushnell said: "The critical ingredient is getting off your butt and doing something." Having an idea is easy, but it's only when you decide to take action and do something that your dreams become reality. Taking the first step is hard, but it's the only way to make progress. So don't waste time and start today!
 
 <!-- </quote> -->
 

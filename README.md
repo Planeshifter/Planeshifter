@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Making your dreams come true takes a lot of hard work and dedication. As Nolan Bushnell said: "The critical ingredient is getting off your butt and doing something." Having an idea is easy, but it's only when you decide to take action and do something that your dreams become reality. Taking the first step is hard, but it's the only way to make progress. So don't waste time and start today!
+Success is not a given. It is something that needs to be earned and maintained. As Cher Wang, CEO of HTC said: "It takes humility to realize that we don't know everything, not to rest on our laurels and know that we must keep learning and observing. If we don't, we can be sure some startup will be there to take our place." Learning and adapting to the ever changing environment is essential for any successful venture. We must stay humble, and be willing to experiment, in order to stay ahead of the game.
 
 <!-- </quote> -->
 

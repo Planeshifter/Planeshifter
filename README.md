@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is often a result of hard work and determination. As Zig Ziglar said: "One can get anything if he is willing to help enough others get what they want." We can't expect to achieve our goals if we don't first contribute to the success of others. By taking the time to help and support others, we create an environment of collaboration and cooperation that ultimately benefits us all.
+Leadership is key to success. Charles Maurice said it best when he proclaimed, "I am more afraid of an army of one hundred sheep led by a lion than an army of one hundred lions led by a sheep." True leaders don't just follow the crowd, they have the courage and conviction to blaze their own path and inspire others to follow.
 
 <!-- </quote> -->
 

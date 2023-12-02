@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Leadership is key to success. Charles Maurice said it best when he proclaimed, "I am more afraid of an army of one hundred sheep led by a lion than an army of one hundred lions led by a sheep." True leaders don't just follow the crowd, they have the courage and conviction to blaze their own path and inspire others to follow.
+Education is key to success, but it doesn't have to be a formal process. As Mitch Hedberg said: “I didn’t go to college, but if I did, I would’ve taken all my tests at a restaurant, ’cause ‘The customer is always right.’” This quote teaches us that we can gain knowledge from any environment, as long as we approach it with an open mind and a willingness to learn.
 
 <!-- </quote> -->
 

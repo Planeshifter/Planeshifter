@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is not something we should take for granted. As Bill Gates said: "Success is a lousy teacher. It seduces smart people into thinking they can't lose". We should always remember that there is room for improvement, and that failure can be a valuable teacher if we learn from it.
+Hard work is essential to achieving success, but it’s not always easy. As Claude McDonald said, “If hard work is the key to success, most people would rather pick the lock.” Far too often, people take the easy route and try to shortcut the process. This rarely works out in the long run.
 
 <!-- </quote> -->
 

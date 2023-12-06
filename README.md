@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Hard work is essential to achieving success, but it’s not always easy. As Claude McDonald said, “If hard work is the key to success, most people would rather pick the lock.” Far too often, people take the easy route and try to shortcut the process. This rarely works out in the long run.
+Adaptability is key to success. Victoria Ransom, co-founder of Wildfire Interactive, said it best: "Even if you don't have the perfect idea to begin with, you can likely adapt". This is true in almost any endeavor; adjusting our plans and expectations to fit reality is how we make progress.
 
 <!-- </quote> -->
 

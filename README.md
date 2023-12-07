@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Adaptability is key to success. Victoria Ransom, co-founder of Wildfire Interactive, said it best: "Even if you don't have the perfect idea to begin with, you can likely adapt". This is true in almost any endeavor; adjusting our plans and expectations to fit reality is how we make progress.
+Tom Kelley said it best: "Fail often so you can succeed sooner". Trying, failing and trying again is a successful way to reach your goals. It's important to remember that mistakes are part of the learning process and will help you find out what works and what doesn't. By failing often, you'll gain important insights and be able to make adjustments to achieve success.
 
 <!-- </quote> -->
 

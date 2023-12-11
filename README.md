@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No matter how hard life can get, there's always a way out. As the saying goes: "If plan ‘A’ fails ― remember you have 25 letters left". It's a reminder that we should never give up and always keep looking for alternative solutions. There's always hope and the possibility to turn our situation around.
+Business isn't about taking but giving. Robert Bosch captures this perfectly in his quote: "I don’t pay good wages because I have a lot of money; I have a lot of money because I pay good wages." Good wages should be a priority for any successful business. Workers who are paid well tend to be more motivated and productive, which leads to greater profits for the business.
 
 <!-- </quote> -->
 

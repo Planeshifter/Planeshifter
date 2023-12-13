@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Dreams can only come true if we are willing to put in the necessary effort. As Donald Trump said: "I wasn't satisfied just to earn a good living. I was looking to make a statement." It takes dedication, resilience and dedication to make those dreams a reality.
+If you want to make sure your business succeeds, follow Garrett Camp's advice and stay self-funded as long as possible. When you're self-funded, you're in control and don't have to worry about external investors or venture capitalists influencing your decisions. That way, you can build your business by sticking to your own vision and mission.
 
 <!-- </quote> -->
 

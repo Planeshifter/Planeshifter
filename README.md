@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-If you want to make sure your business succeeds, follow Garrett Camp's advice and stay self-funded as long as possible. When you're self-funded, you're in control and don't have to worry about external investors or venture capitalists influencing your decisions. That way, you can build your business by sticking to your own vision and mission.
+No one can deny the importance of a good education. However, Jim Rohn, the author and speaker, points out that education should not be limited to the classroom. He says: "Formal education will make you a living; self-education will make you a fortune." Self-education is just as necessary and can be the difference between a good life and a great one.
 
 <!-- </quote> -->
 

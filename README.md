@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No one can deny the importance of a good education. However, Jim Rohn, the author and speaker, points out that education should not be limited to the classroom. He says: "Formal education will make you a living; self-education will make you a fortune." Self-education is just as necessary and can be the difference between a good life and a great one.
+As Larry Page, CEO of Google, says: "Lots of companies don’t succeed over time. What do they fundamentally do wrong? They usually miss the future." This is a warning to all companies: the key to success is to be able to keep up with the trend and embrace change. Companies who fail to do this will eventually fall behind.
 
 <!-- </quote> -->
 

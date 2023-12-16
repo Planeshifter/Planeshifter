@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-As Larry Page, CEO of Google, says: "Lots of companies don’t succeed over time. What do they fundamentally do wrong? They usually miss the future." This is a warning to all companies: the key to success is to be able to keep up with the trend and embrace change. Companies who fail to do this will eventually fall behind.
+Success is not a given. It is something that needs to be earned and maintained. As Cher Wang, CEO of HTC said: "It takes humility to realize that we don't know everything, not to rest on our laurels and know that we must keep learning and observing. If we don't, we can be sure some startup will be there to take our place." Learning and adapting to the ever changing environment is essential for any successful venture. We must stay humble, and be willing to experiment, in order to stay ahead of the game.
 
 <!-- </quote> -->
 

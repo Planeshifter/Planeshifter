@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is not a given. It is something that needs to be earned and maintained. As Cher Wang, CEO of HTC said: "It takes humility to realize that we don't know everything, not to rest on our laurels and know that we must keep learning and observing. If we don't, we can be sure some startup will be there to take our place." Learning and adapting to the ever changing environment is essential for any successful venture. We must stay humble, and be willing to experiment, in order to stay ahead of the game.
+What is the secret to life? Finding purpose. Or, as C. H. Parkhurst said, "Purpose is what gives life a meaning." The quote suggests that having purpose in life is vital for a meaningful existence. It is important to find that purpose in our lives because it gives us direction, motivation, and overall satisfaction. Having purpose keeps us focused on our goals, drives us to continue striving for better, and allows us to experience a sense of contentment when we reach our desired outcomes.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Entrepreneurship is a journey that requires you to take risks that most people won't in order to achieve success. As Anonymous said, "Entrepreneurship is living a few years of your life like most people won't, so that you can spend the rest of your life like most people can't". It is going the extra mile and giving it your all every day to create something amazing.
+Thomas Edison said it best: "Opportunity is missed by most people because it is dressed in overalls and looks like work." Too often, we miss out on our greatest achievements because we're not willing to put in the hard work to get there. But with the right attitude and determination, success is within our reach.
 
 <!-- </quote> -->
 

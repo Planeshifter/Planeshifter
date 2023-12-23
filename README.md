@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What takes more effort to do, great things or commanding them? Commanding them. Or, as Friedrich Nietzsche said, “To do great things is difficult; but to command great things is more difficult.” This emphasizes the challenge of leading, rather than being led, and the importance of taking initiative and demonstrating strong leadership. This quote is important to me, as a personal trainer and self-help guru, because inspiring others to reach their potential requires a great deal of guidance, determination and hard work.
+Achieving success isn't easy, but it is achievable. As the Chinese proverb says, "A journey of a thousand miles begins with a single step." It's important to stay focused on the end goal and taking one step at a time. We can't expect immediate results, but with hard work and dedication, we can get closer to achieving our dreams.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Achieving success isn't easy, but it is achievable. As the Chinese proverb says, "A journey of a thousand miles begins with a single step." It's important to stay focused on the end goal and taking one step at a time. We can't expect immediate results, but with hard work and dedication, we can get closer to achieving our dreams.
+Life is full of ups and downs. As the Chinese Proverb says: "Defeat isn't bitter if you don't swallow it". We can choose to look at failure as an opportunity to learn and grow, instead of seeing it as a permanent defeat. It is important to remember that our attitude shapes our future.
 
 <!-- </quote> -->
 

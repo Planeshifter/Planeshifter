@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is full of ups and downs. As the Chinese Proverb says: "Defeat isn't bitter if you don't swallow it". We can choose to look at failure as an opportunity to learn and grow, instead of seeing it as a permanent defeat. It is important to remember that our attitude shapes our future.
+No matter how much we achieve, success is not only measured by material possessions. Bo Bennet reminds us that we should strive for personal growth and development in order to be truly successful. Success is not what we have, but who we are and how far we have come.
 
 <!-- </quote> -->
 

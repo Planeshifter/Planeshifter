@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No matter how much we achieve, success is not only measured by material possessions. Bo Bennet reminds us that we should strive for personal growth and development in order to be truly successful. Success is not what we have, but who we are and how far we have come.
+It takes time and effort to get to where we want to be. As the Chinese proverb says, "A jade stone is useless before it is processed; a man is good-for-nothing until he is educated". Education is the key to unlocking our potential and achieving our goals. We must be open to learning, growing and developing our skills if we want to make something of ourselves.
 
 <!-- </quote> -->
 

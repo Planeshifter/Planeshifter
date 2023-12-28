@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What's the difference between success and failure? Having the will to persevere. Or, as Vince Lombardi said, "The difference between a successful person and others is not a lack of strength, not a lack of knowledge, but rather a lack in will." This quote emphasizes that having the strength and knowledge to succeed is important, but if you lack the will to persevere, you won't achieve success. This quote is important to me because it reminds me to stay focused and motivated even when I am faced with challenging tasks and to keep pushing forward even when I am feeling discouraged.
+If you want to build an exceptional team, you'll need exceptional people. As Marc Benioff, CEO of Salesforce, said: "The secret to successful hiring is this: look for the people who want to change the world." It's not just about who has the right skillset, it's about seeking out people who are motivated and passionate.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-If you want to build an exceptional team, you'll need exceptional people. As Marc Benioff, CEO of Salesforce, said: "The secret to successful hiring is this: look for the people who want to change the world." It's not just about who has the right skillset, it's about seeking out people who are motivated and passionate.
+No matter what our goal is, we can always take smaller steps to achieve it. Napoleon Hill said it best: “If you cannot do great things, do small things in a great way.” This means we should be focused, diligent and passionate about our goals, no matter how big or small. Quote: “Success is not the key to happiness. Happiness is the key to success.” ― Albert Schweitzer
 
 <!-- </quote> -->
 

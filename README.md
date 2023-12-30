@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No matter what our goal is, we can always take smaller steps to achieve it. Napoleon Hill said it best: “If you cannot do great things, do small things in a great way.” This means we should be focused, diligent and passionate about our goals, no matter how big or small. Quote: “Success is not the key to happiness. Happiness is the key to success.” ― Albert Schweitzer
+Success can‘t be faked. As Anthony Volodkin, founder of Hype Machine says: "Be undeniably good. No marketing effort or social media buzzword can be a substitute for that". Only quality work and dedication will lead to success. Anything else is just a waste of time.
 
 <!-- </quote> -->
 

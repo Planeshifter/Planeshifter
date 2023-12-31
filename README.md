@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success can‘t be faked. As Anthony Volodkin, founder of Hype Machine says: "Be undeniably good. No marketing effort or social media buzzword can be a substitute for that". Only quality work and dedication will lead to success. Anything else is just a waste of time.
+Success requires action, not just words. As Andrew Fashion says: "Make it happen now, not tomorrow. Tomorrow is a loser’s excuse." We need to take ownership of our lives and take action to reach our goals. There's no time to wait or procrastinate. Now is the time.
 
 <!-- </quote> -->
 

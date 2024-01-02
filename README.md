@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What's the best way to get to happiness? By traveling in a happy manner! Or, as Margaret Lee Runbeck said, "Happiness is not a state to arrive at, but a manner of traveling." This quote encourages us to find joy in our journey and to be mindful of the present moment. This quote relates to our daily life in that it reminds us to live in the moment and appreciate the decisions we make during our journey, which can lead us to a more fulfilling and content life.
+Og Mandino's words are wise and true - victory doesn't come easy. It is only after many struggles and countless defeats that we can achieve success. We must be resilient and never give up, no matter how hard the task may seem. Only then can we taste sweet success.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Og Mandino's words are wise and true - victory doesn't come easy. It is only after many struggles and countless defeats that we can achieve success. We must be resilient and never give up, no matter how hard the task may seem. Only then can we taste sweet success.
+What can't you rely on when your dreams are blurry? Your sight. Or, as Mark Twain said, "You cannot depend on your eyes when your imagination is out of focus." This quote encourages us to pay attention to our mental clarity and focus in order to properly use our vision. Imagination is an invaluable tool for life, so it is important to ensure it is working correctly in order to make the most of our eyes. It is essential to stay sharp and focused on our goals so that we can use our eyes to help us identify and reach them.
 
 <!-- </quote> -->
 

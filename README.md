@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Leadership is key to success. Charles Maurice said it best when he proclaimed, "I am more afraid of an army of one hundred sheep led by a lion than an army of one hundred lions led by a sheep." True leaders don't just follow the crowd, they have the courage and conviction to blaze their own path and inspire others to follow.
+Change can be daunting, but it is also an opportunity. As Peter F. Drucker said, the entrepreneur always searches for change, responds to it, and exploits it as an opportunity. To succeed in this ever-changing world, we have to be agile and ready to seize the opportunities that come our way.
 
 <!-- </quote> -->
 

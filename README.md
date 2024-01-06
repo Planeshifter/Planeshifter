@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Change can be daunting, but it is also an opportunity. As Peter F. Drucker said, the entrepreneur always searches for change, responds to it, and exploits it as an opportunity. To succeed in this ever-changing world, we have to be agile and ready to seize the opportunities that come our way.
+Do we ever really get what we pay for? This thought-provoking quote by Steven Wright says it all: "Ever notice how it’s a penny for your thoughts, yet you put in your two-cents? Someone is making a penny on the deal." We might think we're getting a good deal, but in reality, we're usually paying more than we realize.
 
 <!-- </quote> -->
 

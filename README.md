@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Do we ever really get what we pay for? This thought-provoking quote by Steven Wright says it all: "Ever notice how it’s a penny for your thoughts, yet you put in your two-cents? Someone is making a penny on the deal." We might think we're getting a good deal, but in reality, we're usually paying more than we realize.
+Being spineless is not a quality to be admired. As Stanislaw Lem said, "Cannibals prefer those who have no spines." We should never sacrifice our beliefs and principles in order to get ahead. Standing up for what we believe in is essential to leading a fulfilling and successful life.
 
 <!-- </quote> -->
 

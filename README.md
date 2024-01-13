@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-How do you move forward in life? The best way is through it. Or, as Robert Frost said, "The best way out is always through." This means that it is better to confront your challenges and work through them than to go around them. This quote relates to my daily life by reminding me to take on any obstacles that come my way and trust that I have the perseverance to persevere and make it through.
+Thomas Edison believed in giving back. He said that he never perfected an invention that he didn't think about in terms of the service it might give others. He wanted to use his inventions to make the world a better place. He believed in finding out what the world needs, and then inventing it. His ideas are still inspiring us today.
 
 <!-- </quote> -->
 

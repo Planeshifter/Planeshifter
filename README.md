@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Thomas Edison believed in giving back. He said that he never perfected an invention that he didn't think about in terms of the service it might give others. He wanted to use his inventions to make the world a better place. He believed in finding out what the world needs, and then inventing it. His ideas are still inspiring us today.
+Leadership doesn't mean commanding and controlling people. Instead, it's about inspiring and motivating them. As Charles S. Lauer said: "Leaders don’t force people to follow, they invite them on a journey". True leaders are able to bring out the best in people and unite them towards a common goal.
 
 <!-- </quote> -->
 

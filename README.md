@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Leadership doesn't mean commanding and controlling people. Instead, it's about inspiring and motivating them. As Charles S. Lauer said: "Leaders don’t force people to follow, they invite them on a journey". True leaders are able to bring out the best in people and unite them towards a common goal.
+You don’t have to force yourself to like something; it will come naturally. As Jeff Bezos said: "One of the huge mistakes people make is that they try to force an interest on themselves. You don’t choose your passions; your passions choose you." So follow your heart, and you will discover your true passion and purpose in life.
 
 <!-- </quote> -->
 

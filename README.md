@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You don’t have to force yourself to like something; it will come naturally. As Jeff Bezos said: "One of the huge mistakes people make is that they try to force an interest on themselves. You don’t choose your passions; your passions choose you." So follow your heart, and you will discover your true passion and purpose in life.
+Making your dreams come true takes a lot of hard work and dedication. As Nolan Bushnell said: "The critical ingredient is getting off your butt and doing something." Having an idea is easy, but it's only when you decide to take action and do something that your dreams become reality. Taking the first step is hard, but it's the only way to make progress. So don't waste time and start today!
 
 <!-- </quote> -->
 

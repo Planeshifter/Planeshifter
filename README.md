@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is full of risks and taking risks means making mistakes. As Jeff Clavier said: "If we don’t allow ourselves to make mistakes, we will never invest in things that are radical." We must embrace the fear of failure in order to achieve success. Taking risks can be scary but can also be rewarding.
+As Wayne Gretzky famously said, “You miss 100% of the shots you don’t take”. Taking risks and challenging yourself can be daunting, but if you don’t try, you’ll never know what you’re capable of accomplishing. Don’t be afraid to take a chance and get out of your comfort zone.
 
 <!-- </quote> -->
 

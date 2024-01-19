@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-As Wayne Gretzky famously said, “You miss 100% of the shots you don’t take”. Taking risks and challenging yourself can be daunting, but if you don’t try, you’ll never know what you’re capable of accomplishing. Don’t be afraid to take a chance and get out of your comfort zone.
+Success is not simply a matter of luck. As Earl Wilson said: "Success is simply a matter of luck. Ask any failure." Sure, there are many fortunate events that can play a role in our achievements, but it takes hard work, persistence and dedication to get to the top.
 
 <!-- </quote> -->
 

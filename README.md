@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is not simply a matter of luck. As Earl Wilson said: "Success is simply a matter of luck. Ask any failure." Sure, there are many fortunate events that can play a role in our achievements, but it takes hard work, persistence and dedication to get to the top.
+Having a great idea is not enough on its own. As Michael Dell said: "Ideas are commodity. Execution of them is not." In order to bring your ideas to life, you need to have the courage and determination to see them through. Knowing how to carry out a plan is just as important as having the idea in the first place.
 
 <!-- </quote> -->
 

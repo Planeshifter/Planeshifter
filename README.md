@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all have different definitions of success. For some, success is having a fulfilling career, for others it's having financial stability. But whatever our ambition, as Christopher Morley said, “There is only one success ― to be able to spend your life in your own way”. Living life on our own terms is the greatest success we can achieve.
+It‘s never too late to become the best version of yourself. As George Eliot said: “It is never too late to be what you might have been”. We have the power to define our own destiny, regardless of our circumstances or age. We can always be the person we want to be and fulfill our potential in life.
 
 <!-- </quote> -->
 

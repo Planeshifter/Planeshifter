@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is full of tough decisions, and as Timothy Ferriss advises, sometimes it's best to take the plunge and make a move, even if the timing isn't perfect. He said, "For all of the most important things, the timing always sucks. Waiting for a good time to quit your job? The stars will never align and the traffic lights of life will never all be green at the same time. The universe doesn’t conspire against you, but it doesn’t go out of its way to line up the pins either." Don't be tempted to procrastinate, if something is important to you, take the plunge and start now.
+No matter how hard life knocks you down, never give up. As General George Patton said: "Success is how high you bounce after you hit bottom". Even when you are at your lowest, there is always the possibility to come back and make something out of yourself. Don't give up on your dreams and always strive for better.
 
 <!-- </quote> -->
 

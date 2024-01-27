@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No matter how scared we are, we cannot let the fear of failure stop us from achieving our dreams. As Kevin Plank, CEO of Under Armour said: "There’s an entrepreneur right now, scared to death, making excuses, saying, ‘It’s not the right time just yet.’ There’s no such thing as a good time. Get out of your garage and go take a chance, and start your business." We can't wait for the ideal circumstances to take a shot at success. We must take the plunge and make our own luck. Quote: "You can't connect the dots looking forward; you can only connect them looking backwards. So you have to trust that the dots will somehow connect in your future. ― Steve Jobs
+Are our accomplishments really what matters? No, our aspirations do. Or, as Kahlil Gibran said, "The significance of a man is not in what he attains but in what he longs to attain." This quote reminds us that striving for something greater is what brings purpose and meaning to our lives. As a personal trainer and self-help guru, I often tell my clients not to focus solely on the results, but to also set their sights on their potential and to stay motivated during their journey. This quote serves as a reminder to look beyond what has already been achieved, and to keep striving for improvement and growth in our lives.
 
 <!-- </quote> -->
 

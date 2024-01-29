@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You can't learn to walk or succeed in life by following a strict set of rules. As Richard Branson said, "You learn by doing and falling over." It's only through trial and error, hard work, and resilience that we can achieve our goals and reach our full potential.
+There is nothing more powerful than a dream. As Malcolm Forbes said, “When you cease to dream you cease to live”. Dreams provide us with hope and motivation to strive for greatness, and without them, life would be meaningless. So never give up on your dreams and keep living.
 
 <!-- </quote> -->
 

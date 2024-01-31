@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Education is an investment in the future. As Derek Bok said, "If you think education is expensive, try ignorance". Not educating oneself can cost much more in the long run. Investing in knowledge, skills and experience will build a solid foundation for success.
+What has a dream but must be done on time? A goal. Or, as Napoleon Hill said, "A goal is a dream with a deadline." This means that when you set a goal, you need to make sure you work to attain it before the deadline you set for yourself. This quote is important because it emphasizes the importance of setting a timeline for goals in order to hold yourself accountable and make sure that you are taking action towards achieving them.
 
 <!-- </quote> -->
 

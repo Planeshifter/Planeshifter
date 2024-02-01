@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What has a dream but must be done on time? A goal. Or, as Napoleon Hill said, "A goal is a dream with a deadline." This means that when you set a goal, you need to make sure you work to attain it before the deadline you set for yourself. This quote is important because it emphasizes the importance of setting a timeline for goals in order to hold yourself accountable and make sure that you are taking action towards achieving them.
+Karl (maybe Groucho) Marx was right when he said: "Catch a man a fish, and you can sell it to him. Teach a man to fish, and you ruin a wonderful business opportunity". It’s easy to provide a quick fix to a problem, but if you give someone the tools to solve it themselves, they won’t need to come back to you. It’s important not to make the mistake of giving away too much.
 
 <!-- </quote> -->
 

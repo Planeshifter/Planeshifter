@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Karl (maybe Groucho) Marx was right when he said: "Catch a man a fish, and you can sell it to him. Teach a man to fish, and you ruin a wonderful business opportunity". It’s easy to provide a quick fix to a problem, but if you give someone the tools to solve it themselves, they won’t need to come back to you. It’s important not to make the mistake of giving away too much.
+We all want to enjoy our lives and find a job where we can be passionate about. As Confucius said: "Find a job you love and you'll never work a day in your life". This means that if we find a job that we love and are passionate about, then every day will be an enjoyable experience.
 
 <!-- </quote> -->
 

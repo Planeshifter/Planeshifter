@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all have different definitions of success. For some, success is having a fulfilling career, for others it's having financial stability. But whatever our ambition, as Christopher Morley said, “There is only one success ― to be able to spend your life in your own way”. Living life on our own terms is the greatest success we can achieve.
+When is the best time to launch a product? Before it's perfect. Or, as Reid Hoffman said, "If you're not embarrassed by the first version of your product, you've launched too late." This quote reflects the idea that launching quickly and iterating along the way will lead to better results than waiting until the product is perfect. It is important to remember this advice in our daily lives as we often become too caught up in perfectionism and procrastination, which can lead to missed opportunities and lack of progress.
 
 <!-- </quote> -->
 

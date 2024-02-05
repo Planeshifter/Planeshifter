@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-When is the best time to launch a product? Before it's perfect. Or, as Reid Hoffman said, "If you're not embarrassed by the first version of your product, you've launched too late." This quote reflects the idea that launching quickly and iterating along the way will lead to better results than waiting until the product is perfect. It is important to remember this advice in our daily lives as we often become too caught up in perfectionism and procrastination, which can lead to missed opportunities and lack of progress.
+You can't just be a businessman, you have to be a business. This is what Jay-Z means when he said "I'm not a businessman. I'm a business, man.". To succeed, you have to think outside the box, challenge the status quo, and create something that will last beyond your lifetime. It's not enough to be a businessman; you have to have the vision and the drive of a business.
 
 <!-- </quote> -->
 

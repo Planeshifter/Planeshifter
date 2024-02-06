@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You can't just be a businessman, you have to be a business. This is what Jay-Z means when he said "I'm not a businessman. I'm a business, man.". To succeed, you have to think outside the box, challenge the status quo, and create something that will last beyond your lifetime. It's not enough to be a businessman; you have to have the vision and the drive of a business.
+Life can be full of challenges, but it's up to us how we choose to face them. As Winston Churchill said: "A pessimist sees the difficulty in every opportunity; an optimist sees the opportunity in every difficulty". As challenging as life can be, we can find the silver lining and use it to our advantage.
 
 <!-- </quote> -->
 

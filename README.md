@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No matter how much we achieve, success is not only measured by material possessions. Bo Bennet reminds us that we should strive for personal growth and development in order to be truly successful. Success is not what we have, but who we are and how far we have come.
+It's not enough to just have a job. As Michael Gerber said: "The entrepreneur builds an enterprise; the technician builds a job". To really make a difference, we need to open ourselves to the possibility of creating something more. When we take the risk of stepping outside of our comfort zone and pursue our passion, we can build something that lasts.
 
 <!-- </quote> -->
 

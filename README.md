@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's not enough to just have a job. As Michael Gerber said: "The entrepreneur builds an enterprise; the technician builds a job". To really make a difference, we need to open ourselves to the possibility of creating something more. When we take the risk of stepping outside of our comfort zone and pursue our passion, we can build something that lasts.
+No matter how hard life can get, there's always a way out. As the saying goes: "If plan ‘A’ fails ― remember you have 25 letters left". It's a reminder that we should never give up and always keep looking for alternative solutions. There's always hope and the possibility to turn our situation around.
 
 <!-- </quote> -->
 

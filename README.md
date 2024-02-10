@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No matter how hard life can get, there's always a way out. As the saying goes: "If plan ‘A’ fails ― remember you have 25 letters left". It's a reminder that we should never give up and always keep looking for alternative solutions. There's always hope and the possibility to turn our situation around.
+You can't expect to be successful if you don't take action. As Johann Wolfgang von Goethe said, "What is not started will never get finished". Taking the first step is essential to achieving anything in life. Don't let the fear of failure hold you back; start now and success will follow.
 
 <!-- </quote> -->
 

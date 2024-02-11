@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You can't expect to be successful if you don't take action. As Johann Wolfgang von Goethe said, "What is not started will never get finished". Taking the first step is essential to achieving anything in life. Don't let the fear of failure hold you back; start now and success will follow.
+Success is not simply a matter of luck. As Earl Wilson said: "Success is simply a matter of luck. Ask any failure." Sure, there are many fortunate events that can play a role in our achievements, but it takes hard work, persistence and dedication to get to the top.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is not simply a matter of luck. As Earl Wilson said: "Success is simply a matter of luck. Ask any failure." Sure, there are many fortunate events that can play a role in our achievements, but it takes hard work, persistence and dedication to get to the top.
+Life is too short to settle for anything less than your dreams. As Eliza Dushku said, “Go big, or go home”. Don’t be afraid to take risks and go after what you want. You’ll never know what is possible unless you try.
 
 <!-- </quote> -->
 

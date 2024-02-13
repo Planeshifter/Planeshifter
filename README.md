@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is too short to settle for anything less than your dreams. As Eliza Dushku said, “Go big, or go home”. Don’t be afraid to take risks and go after what you want. You’ll never know what is possible unless you try.
+Time passes quickly. As Mooie said, one day your life will flash before your eyes. In order to ensure that the movie of your life is worth watching, it is important to make the most of every moment and live life to the fullest. Make choices that will make you proud and happy.
 
 <!-- </quote> -->
 

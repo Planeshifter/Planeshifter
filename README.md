@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Time passes quickly. As Mooie said, one day your life will flash before your eyes. In order to ensure that the movie of your life is worth watching, it is important to make the most of every moment and live life to the fullest. Make choices that will make you proud and happy.
+What did Thomas Edison do to succeed? He failed. Or, as Thomas Edison said, "I failed my way to success". This quote reminds us that success does not come without hard work and failure, and that it is important to learn from mistakes and keep trying. In our daily lives, we must have the courage to try new things, take risks, and learn from our mistakes in order to reach our goals.
 
 <!-- </quote> -->
 

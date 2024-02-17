@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What does the road to success look like? The only journey is the one within. J: Or, as Rainer Maria Rilke said, "The only journey is the one within." Explanation: The quote implies that self-reflection and taking time to focus on personal growth are essential in one's life journey. This is important because it reminds us to focus on our inner selves in order to make progress in our lives. To achieve our goals, we must take time to evaluate our thoughts, feelings, and actions. Taking time to focus on ourselves helps us to become the best versions of ourselves and realize our true potential.
+Making mistakes is an integral part of life--we learn and grow from them. As Catherine Cook said, “If you’re not making mistakes, then you’re not making decisions”. We cannot simply remain in a state of complacency, but must be willing to take risks and accept the possibility of failure.
 
 <!-- </quote> -->
 

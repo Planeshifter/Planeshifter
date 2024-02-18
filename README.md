@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Making mistakes is an integral part of life--we learn and grow from them. As Catherine Cook said, “If you’re not making mistakes, then you’re not making decisions”. We cannot simply remain in a state of complacency, but must be willing to take risks and accept the possibility of failure.
+You can't always get what you want. As the Chinese proverb says: "All cats love fish but fear to wet their paws". We may be tempted by something, but if it means taking a risk, we may be more cautious. We need to be brave and take a chance if we want to achieve our goals.
 
 <!-- </quote> -->
 

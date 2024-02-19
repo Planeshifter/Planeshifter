@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You can't always get what you want. As the Chinese proverb says: "All cats love fish but fear to wet their paws". We may be tempted by something, but if it means taking a risk, we may be more cautious. We need to be brave and take a chance if we want to achieve our goals.
+We shouldn't be ostentatious about our wealth and possessions. As the Chinese proverb says: "When you go to buy, don't show your silver". It's best to be humble and prudent when it comes to money, as it will help you to stay grounded in the face of success.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We shouldn't be ostentatious about our wealth and possessions. As the Chinese proverb says: "When you go to buy, don't show your silver". It's best to be humble and prudent when it comes to money, as it will help you to stay grounded in the face of success.
+Money isn't everything, but it is an important factor when it comes to achieving success. As Michael Dunlop said: "I treat business a bit like a computer game. I count money as points. I'm doing really well: making lots of money and lots of points." This mindset is key to staying motivated and building a successful business.
 
 <!-- </quote> -->
 

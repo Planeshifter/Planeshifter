@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Money isn't everything, but it is an important factor when it comes to achieving success. As Michael Dunlop said: "I treat business a bit like a computer game. I count money as points. I'm doing really well: making lots of money and lots of points." This mindset is key to staying motivated and building a successful business.
+If you don't have a clear goal in mind, then no effort you make will be fruitful. To achieve any success, you must define your destination. As Lucius Annaeus Seneca said: "If one does not know to which port one is sailing, no wind is favorable." Without a goal, there can be no success.
 
 <!-- </quote> -->
 

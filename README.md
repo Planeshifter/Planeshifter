@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-If you don't have a clear goal in mind, then no effort you make will be fruitful. To achieve any success, you must define your destination. As Lucius Annaeus Seneca said: "If one does not know to which port one is sailing, no wind is favorable." Without a goal, there can be no success.
+No man is an island. As the Chinese proverb says: "Make happy those who are near, and those who are far will come". Our connections to the people around us are essential to our overall contentment and success, so it's important to nurture them.
 
 <!-- </quote> -->
 

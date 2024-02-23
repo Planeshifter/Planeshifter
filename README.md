@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No man is an island. As the Chinese proverb says: "Make happy those who are near, and those who are far will come". Our connections to the people around us are essential to our overall contentment and success, so it's important to nurture them.
+Why take a chance when you can stay safe? To live a fulfilling life. Or, as Ilka Chase said, "The only people who never fail are those who never try." This highlights the importance of taking risks and trying new things in order to succeed and grow. This quote is important to me because it reminds me to take risks and try new things in order to discover more about myself and the world around me.
 
 <!-- </quote> -->
 

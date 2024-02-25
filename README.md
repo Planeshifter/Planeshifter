@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-If you don't have a clear goal in mind, then no effort you make will be fruitful. To achieve any success, you must define your destination. As Lucius Annaeus Seneca said: "If one does not know to which port one is sailing, no wind is favorable." Without a goal, there can be no success.
+What comes with more effort? Greater rewards. Or, as Horace Bushnell said, "The more difficulties one has to encounter, within and without, the more significant and the higher in inspiration his life will be." This quote demonstrates the importance of hard work and perseverance, as the more difficult something is, the more rewarding it can be. This is especially relevant to personal trainers and self-help gurus, as the same principles apply to their work: difficult goals are often the most rewarding. With dedication, patience, and grit, any challenge can be conquered and lasting results can be achieved.
 
 <!-- </quote> -->
 

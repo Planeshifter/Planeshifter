@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-If you want to succeed, you need to focus on the things that do work. As Michael Dunlop said: “You’ve got to stop doing all the things that people have tried, tested, and found out don’t work.” To be successful, you need to know what works and what doesn't and focus on the things that do.
+When starting a business, it's essential to plan for the unexpected. As Richard Harroch, Venture Capitalist, puts it: "It’s almost always harder to raise capital than you thought it would be, and it always takes longer. So plan for that." It's important to give yourself enough time and have a backup plan in case things take longer than expected.
 
 <!-- </quote> -->
 

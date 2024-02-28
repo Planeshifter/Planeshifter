@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-When starting a business, it's essential to plan for the unexpected. As Richard Harroch, Venture Capitalist, puts it: "It’s almost always harder to raise capital than you thought it would be, and it always takes longer. So plan for that." It's important to give yourself enough time and have a backup plan in case things take longer than expected.
+Time is of the essence in today's high-paced world. Tamara Steffens said it best: "Assume you have 90 seconds with a new user before they decide to use your app or delete it". This is especially true for mobile apps, where users are often overwhelmed with choices and easily become disinterested. It's essential to make a good first impression and engage users in a short period of time. Every second counts when it comes to user retention and satisfaction.
 
 <!-- </quote> -->
 

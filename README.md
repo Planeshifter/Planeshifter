@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Time is of the essence in today's high-paced world. Tamara Steffens said it best: "Assume you have 90 seconds with a new user before they decide to use your app or delete it". This is especially true for mobile apps, where users are often overwhelmed with choices and easily become disinterested. It's essential to make a good first impression and engage users in a short period of time. Every second counts when it comes to user retention and satisfaction.
+Starting a business is a difficult and often daunting task. However, with the power of the internet and the speed of innovation, it presents new opportunities for entrepreneurs. As Matt Mickiewicz said: "The pace of change for entrepreneurs is rapidly accelerating, and the cost and risk of launching a new business and getting off the ground is just amazing. The ability to gain user feedback quickly and adapt to what your consumers want is totally different with the web as it is now". With the right tools and resources, entrepreneurs can turn their ideas into a reality.
 
 <!-- </quote> -->
 

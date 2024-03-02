@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-William James once said: "The best use of life is to spend it for something that outlasts it". This is a reminder to focus on pursuits with lasting value instead of chasing fleeting pleasures. We should strive to make an impact that will outlive us instead of living in the moment.
+We all go through tough times in life, and often it can be easy to give up when the going gets tough. As the Japanese proverb says: "Fall seven times, stand up eight". Just because we fail once, twice, or seven times, it doesn't mean we should give up. We should keep trying and stand up again and again, until we reach our goals.
 
 <!-- </quote> -->
 

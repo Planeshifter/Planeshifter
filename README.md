@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all go through tough times in life, and often it can be easy to give up when the going gets tough. As the Japanese proverb says: "Fall seven times, stand up eight". Just because we fail once, twice, or seven times, it doesn't mean we should give up. We should keep trying and stand up again and again, until we reach our goals.
+We all have unique skills and talents. As Albert Einstein said “Everyone is a genius. But if you judge a fish by its ability to climb a tree, it will spend its whole life believing it is stupid.” We should strive to appreciate and nurture our individual gifts instead of expecting them to conform to set standards.
 
 <!-- </quote> -->
 

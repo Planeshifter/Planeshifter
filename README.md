@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all have unique skills and talents. As Albert Einstein said “Everyone is a genius. But if you judge a fish by its ability to climb a tree, it will spend its whole life believing it is stupid.” We should strive to appreciate and nurture our individual gifts instead of expecting them to conform to set standards.
+Life is full of tough decisions, and as Timothy Ferriss advises, sometimes it's best to take the plunge and make a move, even if the timing isn't perfect. He said, "For all of the most important things, the timing always sucks. Waiting for a good time to quit your job? The stars will never align and the traffic lights of life will never all be green at the same time. The universe doesn’t conspire against you, but it doesn’t go out of its way to line up the pins either." Don't be tempted to procrastinate, if something is important to you, take the plunge and start now.
 
 <!-- </quote> -->
 

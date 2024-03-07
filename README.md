@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What's the best way to get to happiness? By traveling in a happy manner! Or, as Margaret Lee Runbeck said, "Happiness is not a state to arrive at, but a manner of traveling." This quote encourages us to find joy in our journey and to be mindful of the present moment. This quote relates to our daily life in that it reminds us to live in the moment and appreciate the decisions we make during our journey, which can lead us to a more fulfilling and content life.
+How can we stay strong in difficult times? Never give in, no matter the opposition. Or, as Winston Churchill said, "Never, never, never, never, in nothing great or small, large or petty, never give in except to convictions of honour and good sense. Never yield to force; never yield to the apparently overwhelming might of the enemy." Self-control, resilience, and perseverance are essential for success and Churchill's quote is a reminder to never give in, no matter the challenge. This quote relates to our daily lives because it encourages us to stay focused on our goals and objectives, and to keep striving for them no matter the obstacles that we might face.
 
 <!-- </quote> -->
 

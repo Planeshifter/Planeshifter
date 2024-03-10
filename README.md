@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You reap what you sow. As the Chinese proverb says: “If you pay peanuts, you get monkeys.” If you expect quality work and results, you must be willing to invest in the right people and resources. You can’t expect exceptional performance from those who are not properly rewarded.
+Thomas Edison said it best: "Opportunity is missed by most people because it is dressed in overalls and looks like work." Too often, we miss out on our greatest achievements because we're not willing to put in the hard work to get there. But with the right attitude and determination, success is within our reach.
 
 <!-- </quote> -->
 

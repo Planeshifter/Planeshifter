@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Thomas Edison said it best: "Opportunity is missed by most people because it is dressed in overalls and looks like work." Too often, we miss out on our greatest achievements because we're not willing to put in the hard work to get there. But with the right attitude and determination, success is within our reach.
+You can't learn to walk or succeed in life by following a strict set of rules. As Richard Branson said, "You learn by doing and falling over." It's only through trial and error, hard work, and resilience that we can achieve our goals and reach our full potential.
 
 <!-- </quote> -->
 

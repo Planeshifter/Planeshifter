@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You can't learn to walk or succeed in life by following a strict set of rules. As Richard Branson said, "You learn by doing and falling over." It's only through trial and error, hard work, and resilience that we can achieve our goals and reach our full potential.
+Nobody is perfect. As William Rosenberg, founder of Dunkin' Donuts said: "Show me a person who never made a mistake, and I will show you a person who never did anything". Mistakes are a part of life and there's no reason to fear them. It's important to learn from our mistakes and keep moving forward.
 
 <!-- </quote> -->
 

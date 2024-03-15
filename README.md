@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Sometimes we can't undo the opportunities missed in the past. As the Chinese proverb states: "The best time to plant a tree is twenty years ago. The second best time is now." We must make the most of our current situation and take advantage of the opportunities in front of us.
+The value of friendships is often measured in the currency of loyalty. As Ted Nicolas said, "Lend your friend $20, if he doesn't pay you back then he's not your friend. Money well spent". It's true that we need to be wary of people who will take advantage of us, but a true friend will always be there when you need them.
 
 <!-- </quote> -->
 

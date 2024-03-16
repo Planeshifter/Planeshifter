@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-The value of friendships is often measured in the currency of loyalty. As Ted Nicolas said, "Lend your friend $20, if he doesn't pay you back then he's not your friend. Money well spent". It's true that we need to be wary of people who will take advantage of us, but a true friend will always be there when you need them.
+Adversity can make us stronger. As the Chinese proverb says, "The diamond cannot be polished without friction, nor the man perfected without trials." Difficult times help build our resilience and can lead to personal growth. To become the best version of ourselves, we must be willing to face our challenges head on.
 
 <!-- </quote> -->
 

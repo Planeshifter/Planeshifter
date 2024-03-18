@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is the only way to find true happiness? By realizing that we have achieved something. Or, as Henry Ford said, "There is no happiness except in the realization that we have accomplished something." This quote reminds us to actively pursue our goals and to appreciate the moments when we do accomplish something, as that type of happiness is one of the greatest forms of satisfaction. The quote is important in our lives because it reminds us to take ownership of our lives and to take pride in our accomplishments, which can lead to greater satisfaction and overall happiness.
+Our society often praises realism and practicality, but Will Smith reminds us that those are the most common paths to mediocrity. If we want to reach our full potential, we need to be bold and embrace the unknown. We need to take risks and go beyond what is considered ‘realistic’.
 
 <!-- </quote> -->
 

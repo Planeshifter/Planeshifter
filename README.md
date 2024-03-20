@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's hard to believe that only one company holds a monopoly over the popular board game Monopoly. As Steven Wright said, this goes against the spirit of free competition and business. The game is enjoyed around the world and it's unfair that one company controls the market, depriving other companies from having a chance to succeed.
+Taking risks is the only way to achieve success. As Casey Neistat, filmmaker said: “Every time I took these bigger risks, the opportunity for a bigger payout was always there.” We must be brave and go beyond our comfort zone if we truly want to reach our goals.
 
 <!-- </quote> -->
 

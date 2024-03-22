@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-How can hard work turn solutions into reality? By taking the necessary steps to make it happen. Or, as Ullery said, "Careful thinking and hard work will solve nearly all your problems. Try and see for yourself." This quote speaks to the power of taking action and persevering in order to achieve success. It is an essential reminder that often times our problems can be solved if we are willing to put in the hard work and effort. It's an important lesson that it is often the effort we put in that makes the difference between success and failure.
+It takes more than just dreaming to be a successful entrepreneur. As Nolan Bushnell said: "The true entrepreneur is a doer, not a dreamer". You need to be proactive and willing to put in the hard work to make your dreams a reality.
 
 <!-- </quote> -->
 

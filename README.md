@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It takes more than just dreaming to be a successful entrepreneur. As Nolan Bushnell said: "The true entrepreneur is a doer, not a dreamer". You need to be proactive and willing to put in the hard work to make your dreams a reality.
+Success doesn’t come easy. We need to put in the hard work if we want to make an impact. Ryan P. Allis said it best: “Not a single person whose name is worth remembering lived a life of ease.” If we truly want to make our mark and be remembered, we need to challenge ourselves and strive for greatness.
 
 <!-- </quote> -->
 

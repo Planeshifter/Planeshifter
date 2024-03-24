@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success doesn’t come easy. We need to put in the hard work if we want to make an impact. Ryan P. Allis said it best: “Not a single person whose name is worth remembering lived a life of ease.” If we truly want to make our mark and be remembered, we need to challenge ourselves and strive for greatness.
+Success in business is not easy to achieve. As David Rockefeller said: "Success in business requires training and discipline and hard work." We must be willing to put in the effort and take on the challenge to create something truly impactful. With hard work and dedication, the opportunities are just as great today as ever before.
 
 <!-- </quote> -->
 

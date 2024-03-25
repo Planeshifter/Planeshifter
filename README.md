@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success in business is not easy to achieve. As David Rockefeller said: "Success in business requires training and discipline and hard work." We must be willing to put in the effort and take on the challenge to create something truly impactful. With hard work and dedication, the opportunities are just as great today as ever before.
+Tom Kelley said it best: "Fail often so you can succeed sooner". Trying, failing and trying again is a successful way to reach your goals. It's important to remember that mistakes are part of the learning process and will help you find out what works and what doesn't. By failing often, you'll gain important insights and be able to make adjustments to achieve success.
 
 <!-- </quote> -->
 

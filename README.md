@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Tom Kelley said it best: "Fail often so you can succeed sooner". Trying, failing and trying again is a successful way to reach your goals. It's important to remember that mistakes are part of the learning process and will help you find out what works and what doesn't. By failing often, you'll gain important insights and be able to make adjustments to achieve success.
+Success is not about luck, it is about resilience. As David Brinkley said, "A successful man is one who can lay a firm foundation with the bricks others have thrown at him." It's about taking the challenges and obstacles that come our way and using them to build a strong platform for success. It requires courage, hard work and dedication to make something out of the challenges life throws at us.
 
 <!-- </quote> -->
 

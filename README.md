@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is the best way to learn?  Through trial and error. Or, as Thomas Edison said, "I have not failed. I’ve just found 10,000 ways that won’t work." This quote captures the idea that success is often found through experimentation, rather than finding the right answer right away. This is important to our daily lives because we should be open to trying new things and not giving up after a few failed attempts, but instead learning from our mistakes and continuing to search for better solutions.
+The old Chinese proverb is true: “Failing to plan is planning to fail.” Without proper planning, it's impossible to achieve success. We need to set goals and create a roadmap to get there. This will give us the structure and direction needed to achieve our desired outcomes.
 
 <!-- </quote> -->
 

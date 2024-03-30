@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is a precious gift that we must learn to cherish and appreciate. As Sid Caesar said: "In between goals is a thing called life, that has to be lived and enjoyed". We must take the time to enjoy the moments and appreciate the journey, not just the destination.
+You can't give up when you face adversity. As the Japanese proverb says, "Fall seven times and stand up eight". We have to persevere in times of trouble and never give up. We must take on every challenge with courage and determination.
 
 <!-- </quote> -->
 

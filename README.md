@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all have our own limitations, but we should never let those limit us. As Steve Case said: "You shouldn't focus on why you can't do something, which is what most people do. You should focus on why perhaps you can, and be one of the exceptions." It's important to stay positive and determined no matter what obstacles you may face.
+Life is not a straight path, it is full of challenges. As the Asian Proverb says: "Building a castle is difficult. Defending and maintaining it is harder still". To reach our goals and sustain them, we must have the resilience to persevere even in the toughest of times.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is not a straight path, it is full of challenges. As the Asian Proverb says: "Building a castle is difficult. Defending and maintaining it is harder still". To reach our goals and sustain them, we must have the resilience to persevere even in the toughest of times.
+It takes time and effort to get to where we want to be. As the Chinese proverb says, "A jade stone is useless before it is processed; a man is good-for-nothing until he is educated". Education is the key to unlocking our potential and achieving our goals. We must be open to learning, growing and developing our skills if we want to make something of ourselves.
 
 <!-- </quote> -->
 

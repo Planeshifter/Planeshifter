@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Having a vision is not enough if we don't take any action. As the Japanese proverb says, “Vision without action is a daydream. Action without vision is a nightmare.” If we don't have a clear plan and direction, our actions will be misguided and we will never reach our goals.
+The key to success isn't just about getting started, it's about getting noticed. As Steve Case said: "It's not about how to get started; it's about how to get noticed." It's not enough to just have an idea, you have to be able to stand out and get noticed to really succeed.
 
 <!-- </quote> -->
 

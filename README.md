@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-The key to success isn't just about getting started, it's about getting noticed. As Steve Case said: "It's not about how to get started; it's about how to get noticed." It's not enough to just have an idea, you have to be able to stand out and get noticed to really succeed.
+We can achieve great things if we only believe in ourselves and our abilities. As Franklin D. Roosevelt once said: "The only limit to our realization of tomorrow will be our doubts of today". It's important to have faith in our dreams, and never give up on them.
 
 <!-- </quote> -->
 

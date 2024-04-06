@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We can achieve great things if we only believe in ourselves and our abilities. As Franklin D. Roosevelt once said: "The only limit to our realization of tomorrow will be our doubts of today". It's important to have faith in our dreams, and never give up on them.
+David Karp, founder of Tumblr, said it best: “Every feature has some maintenance cost, and having fewer features lets us focus on the ones we care about and make sure they work very well.” This means that quantity isn't as important as quality. We should focus on creating and perfecting the few things that are important, rather than trying to do too much all at once.
 
 <!-- </quote> -->
 

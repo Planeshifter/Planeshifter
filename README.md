@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-David Karp, founder of Tumblr, said it best: “Every feature has some maintenance cost, and having fewer features lets us focus on the ones we care about and make sure they work very well.” This means that quantity isn't as important as quality. We should focus on creating and perfecting the few things that are important, rather than trying to do too much all at once.
+It's easy to doubt those who are trying to achieve greatness. As the Chinese Proverb says: "A person who says it cannot be done should not interrupt the man doing it." We should instead show our support and help those who are brave enough to pursue their dreams.
 
 <!-- </quote> -->
 

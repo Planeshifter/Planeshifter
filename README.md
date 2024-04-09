@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Opportunity often comes disguised in the form of hard work. As Thomas Edison said: "Opportunity is missed by most people because it is dressed in overalls and looks like work". We should never shy away from a challenge, because that might just be the very thing that leads us to success.
+You reap what you sow. As the Chinese proverb says: “If you pay peanuts, you get monkeys.” If you expect quality work and results, you must be willing to invest in the right people and resources. You can’t expect exceptional performance from those who are not properly rewarded.
 
 <!-- </quote> -->
 

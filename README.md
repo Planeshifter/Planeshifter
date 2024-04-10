@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You reap what you sow. As the Chinese proverb says: “If you pay peanuts, you get monkeys.” If you expect quality work and results, you must be willing to invest in the right people and resources. You can’t expect exceptional performance from those who are not properly rewarded.
+Success isn't a destination we reach, but a journey we're on. As Thomas J. Watson said, “Whenever an individual or a business decides that success has been attained, progress stops”. We must always strive to keep improving and growing, otherwise our journey to success is at a dead end.
 
 <!-- </quote> -->
 

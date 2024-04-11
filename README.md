@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success isn't a destination we reach, but a journey we're on. As Thomas J. Watson said, “Whenever an individual or a business decides that success has been attained, progress stops”. We must always strive to keep improving and growing, otherwise our journey to success is at a dead end.
+We all know that time is money. As Carrie Wilkerson said: "The longer you’re not taking action the more money you’re losing." The longer we wait and procrastinate, the more opportunities we miss out on and the further we fall behind. So don't sit around, take action now!
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all know that time is money. As Carrie Wilkerson said: "The longer you’re not taking action the more money you’re losing." The longer we wait and procrastinate, the more opportunities we miss out on and the further we fall behind. So don't sit around, take action now!
+Starting a business is no small feat and requires a great deal of passion and dedication. As Dave Thomas, founder of Wendy’s, said: "What do you need to start a business? Three simple things: know your product better than anyone, know your customer, and have a burning desire to succeed." Knowing and understanding what you’re selling, as well as who you’re selling it to, is essential to any successful business. Having the drive to succeed is the boost of motivation that will help get you to the finish line.
 
 <!-- </quote> -->
 

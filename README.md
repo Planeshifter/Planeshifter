@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is the best way to learn?  Through trial and error. Or, as Thomas Edison said, "I have not failed. I’ve just found 10,000 ways that won’t work." This quote captures the idea that success is often found through experimentation, rather than finding the right answer right away. This is important to our daily lives because we should be open to trying new things and not giving up after a few failed attempts, but instead learning from our mistakes and continuing to search for better solutions.
+Having money isn't the only thing that matters. As Jim Rohn said: "The greatest reward in becoming a millionaire is not the amount of money that you earn. It is the kind of person that you have to become to become a millionaire in the first place." Money isn't everything, but the journey to get there can shape who we are and help us grow.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Having money isn't the only thing that matters. As Jim Rohn said: "The greatest reward in becoming a millionaire is not the amount of money that you earn. It is the kind of person that you have to become to become a millionaire in the first place." Money isn't everything, but the journey to get there can shape who we are and help us grow.
+Success is not a given. It is something that needs to be earned and maintained. As Cher Wang, CEO of HTC said: "It takes humility to realize that we don't know everything, not to rest on our laurels and know that we must keep learning and observing. If we don't, we can be sure some startup will be there to take our place." Learning and adapting to the ever changing environment is essential for any successful venture. We must stay humble, and be willing to experiment, in order to stay ahead of the game.
 
 <!-- </quote> -->
 

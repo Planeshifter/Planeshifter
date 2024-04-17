@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-How do you think of the future? One day at a time. Or, as Albert Einstein said, "I never think of the future - it comes soon enough." This quote is a reminder to focus on the present and the decisions we make today, rather than worrying too much about the future, as it will come soon enough. In our busy lives, it is important to remember to focus on today's actions and choices, as they will shape our tomorrow and our future.
+In a competitive world, it is important to stay ahead of the competition. As Roy L. Smith said: "The successful man is the one who finds out what is the matter with his business before his competitors do." To stay on top, one needs to be aware of the challenges and opportunities in the market and be able to act on them quickly.
 
 <!-- </quote> -->
 

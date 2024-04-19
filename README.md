@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What's the path to success? Take risks and learn from them. Or, as Bobby Flay said, "Take risks and you'll get the payoffs. Learn from your mistakes until you succeed. It's that simple." This quote reminds us that success involves taking risks and learning from our mistakes. It's important to take risks in order to make progress in our lives and to achieve our goals. Taking risks allows us to grow and try new things, which can help us expand our horizons, build relationships, find new opportunities, and gain new experiences. Learning from our mistakes is also essential, as it helps us make better decisions and become wiser in the future.
+How can a broken bird fly? It can't. Or, as Langston Hughes said, "Hold fast to dreams, for if dreams die, life is a broken winged bird that cannot fly." This quote emphasizes the importance of not giving up on our dreams in order to live a fulfilling life. Without dreams and ambition, our lives will be limited and stagnant. This quote is important because it reminds us to keep our hopes and ambitions alive and strive for the life we want.
 
 <!-- </quote> -->
 

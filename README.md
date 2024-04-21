@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-If you want to start making progress towards your goals, then you can't just talk about them. As Walt Disney said, "The way to get started is to quit talking and begin doing". Taking action is the only way to make progress and to go from dreaming to achieving.
+We all have different definitions of success. For some, success is having a fulfilling career, for others it's having financial stability. But whatever our ambition, as Christopher Morley said, “There is only one success ― to be able to spend your life in your own way”. Living life on our own terms is the greatest success we can achieve.
 
 <!-- </quote> -->
 

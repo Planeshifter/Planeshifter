@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-When it comes to friendships, money can be an important test of loyalty. As Ted Nicolas said: "Lend your friend $20. If he doesn’t pay you back then he’s not your friend. Money well spent." It's a simple yet effective way to determine the true character of someone.
+We all want to seize opportunities when they arise, but it's important to remember that not every opportunity is the right one for us. As Richard Branson said, "Business opportunities are like buses, there's always another one coming." Always stay vigilant, so when the right one comes along, you'll be ready to take it.
 
 <!-- </quote> -->
 

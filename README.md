@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all want to seize opportunities when they arise, but it's important to remember that not every opportunity is the right one for us. As Richard Branson said, "Business opportunities are like buses, there's always another one coming." Always stay vigilant, so when the right one comes along, you'll be ready to take it.
+Change can be daunting, but it is also an opportunity. As Peter F. Drucker said, the entrepreneur always searches for change, responds to it, and exploits it as an opportunity. To succeed in this ever-changing world, we have to be agile and ready to seize the opportunities that come our way.
 
 <!-- </quote> -->
 

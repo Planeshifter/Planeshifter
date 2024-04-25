@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Change can be daunting, but it is also an opportunity. As Peter F. Drucker said, the entrepreneur always searches for change, responds to it, and exploits it as an opportunity. To succeed in this ever-changing world, we have to be agile and ready to seize the opportunities that come our way.
+Creativity and originality are important, but they are not enough to achieve success. In the modern world of business, as David Ogilvy said, "it is useless to be a creative, original thinker unless you can also sell what you create". This means that we need to be able to market our ideas and skills in order to make them successful.
 
 <!-- </quote> -->
 

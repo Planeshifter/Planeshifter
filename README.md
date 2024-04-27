@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life can be full of surprises and unexpected turns. As Les Dawson said, “I used to sell furniture for a living. The trouble was, it was my own.” Despite our best efforts, sometimes things don't go to plan and we have to find a new way to move forward. This can be a challenging journey, but it can also be a valuable learning experience.
+Having a great idea is not enough on its own. As Michael Dell said: "Ideas are commodity. Execution of them is not." In order to bring your ideas to life, you need to have the courage and determination to see them through. Knowing how to carry out a plan is just as important as having the idea in the first place.
 
 <!-- </quote> -->
 

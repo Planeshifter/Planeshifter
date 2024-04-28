@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Having a great idea is not enough on its own. As Michael Dell said: "Ideas are commodity. Execution of them is not." In order to bring your ideas to life, you need to have the courage and determination to see them through. Knowing how to carry out a plan is just as important as having the idea in the first place.
+Sometimes we can't undo the opportunities missed in the past. As the Chinese proverb states: "The best time to plant a tree is twenty years ago. The second best time is now." We must make the most of our current situation and take advantage of the opportunities in front of us.
 
 <!-- </quote> -->
 

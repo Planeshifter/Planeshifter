@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Sometimes, the hardest part of a task is knowing how to go about it. As Charles Steinmetz's invoice notes, the difference between success and failure often lies in the details. To create extraordinary results, we have to be willing to invest the time and energy needed to understand the nuances of the task. Without knowledge, our labour is often wasted.
+Having a great idea is not enough on its own. As Michael Dell said: "Ideas are commodity. Execution of them is not." In order to bring your ideas to life, you need to have the courage and determination to see them through. Knowing how to carry out a plan is just as important as having the idea in the first place.
 
 <!-- </quote> -->
 

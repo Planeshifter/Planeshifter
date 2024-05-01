@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Having a great idea is not enough on its own. As Michael Dell said: "Ideas are commodity. Execution of them is not." In order to bring your ideas to life, you need to have the courage and determination to see them through. Knowing how to carry out a plan is just as important as having the idea in the first place.
+Success does not come without effort. As Charles F. Kettering said: "Keep on going, and the chances are that you will stumble on something, perhaps when you are least expecting it. I never heard of anyone ever stumbling on something sitting down." We must stay positive and keep pushing even when progress is slow, for it is only through hard work and perseverance that we can achieve our goals.
 
 <!-- </quote> -->
 

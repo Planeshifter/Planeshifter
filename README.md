@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Starting a business is no small feat and requires a great deal of passion and dedication. As Dave Thomas, founder of Wendy’s, said: "What do you need to start a business? Three simple things: know your product better than anyone, know your customer, and have a burning desire to succeed." Knowing and understanding what you’re selling, as well as who you’re selling it to, is essential to any successful business. Having the drive to succeed is the boost of motivation that will help get you to the finish line.
+Words have the power to create or destroy relationships. As John Rampton said: "You can say anything to anyone, but how you say it will determine how they will react". Whether we are talking to friends, family or colleagues, it's important to be mindful of how we communicate and to choose our words wisely.
 
 <!-- </quote> -->
 

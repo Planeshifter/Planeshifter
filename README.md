@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Words have the power to create or destroy relationships. As John Rampton said: "You can say anything to anyone, but how you say it will determine how they will react". Whether we are talking to friends, family or colleagues, it's important to be mindful of how we communicate and to choose our words wisely.
+We all need a break from time to time, but if you're living for the weekend or your next vacation, your life is not in balance. As Gary Vaynerchuk said: "If you live for weekends or vacations, your shit is broken". Life is about finding joy and fulfillment in everyday moments, not just the special ones.
 
 <!-- </quote> -->
 

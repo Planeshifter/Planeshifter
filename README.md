@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all need a break from time to time, but if you're living for the weekend or your next vacation, your life is not in balance. As Gary Vaynerchuk said: "If you live for weekends or vacations, your shit is broken". Life is about finding joy and fulfillment in everyday moments, not just the special ones.
+Time passes quickly. As Mooie said, one day your life will flash before your eyes. In order to ensure that the movie of your life is worth watching, it is important to make the most of every moment and live life to the fullest. Make choices that will make you proud and happy.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-If you don't have a clear goal in mind, then no effort you make will be fruitful. To achieve any success, you must define your destination. As Lucius Annaeus Seneca said: "If one does not know to which port one is sailing, no wind is favorable." Without a goal, there can be no success.
+Take action and be proactive. As William B. Sprague said, “Do not wait to strike until the iron is hot; but make it hot by striking”. Don't be afraid to take risks and put in the work. If you want to succeed, you have to make it happen.
 
 <!-- </quote> -->
 

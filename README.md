@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Take action and be proactive. As William B. Sprague said, “Do not wait to strike until the iron is hot; but make it hot by striking”. Don't be afraid to take risks and put in the work. If you want to succeed, you have to make it happen.
+We all have different definitions of success. For some, success is having a fulfilling career, for others it's having financial stability. But whatever our ambition, as Christopher Morley said, “There is only one success ― to be able to spend your life in your own way”. Living life on our own terms is the greatest success we can achieve.
 
 <!-- </quote> -->
 

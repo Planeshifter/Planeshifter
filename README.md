@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Our attitude towards life can have a big impact on our success. As Henry Ford said: "Whether you think you can or you can’t, you’re right." We are the ones who decide our fate, and our beliefs can shape our destiny. It is important to be confident in our ability to achieve our goals and to remain positive in the face of obstacles.
+Failure is an essential part of success. As Jeff Bezos said: "If you want to be inventive, you have to be willing to fail". We can’t be scared of the possibility of failure. It’s only through repeated attempts that we can find our way to the right solution.
 
 <!-- </quote> -->
 

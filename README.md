@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Failure is an essential part of success. As Jeff Bezos said: "If you want to be inventive, you have to be willing to fail". We can’t be scared of the possibility of failure. It’s only through repeated attempts that we can find our way to the right solution.
+Opportunity often comes disguised in the form of hard work. As Thomas Edison said: "Opportunity is missed by most people because it is dressed in overalls and looks like work". We should never shy away from a challenge, because that might just be the very thing that leads us to success.
 
 <!-- </quote> -->
 

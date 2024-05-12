@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Opportunity often comes disguised in the form of hard work. As Thomas Edison said: "Opportunity is missed by most people because it is dressed in overalls and looks like work". We should never shy away from a challenge, because that might just be the very thing that leads us to success.
+What must be done to find joy? Take action. Or, as Benjamin Disraeli said, "Action may not always bring happiness; but there is no happiness without action." This quote emphasizes the importance of taking action in life, as no matter how hard you wish for something, it will not come to fruition until you act on it. Taking action and being proactive is important for personal growth and for achieving short- and long-term goals in life. Taking action is a powerful way to bring about positive change and increase your sense of accomplishment.
 
 <!-- </quote> -->
 

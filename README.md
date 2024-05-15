@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all have different definitions of success. For some, success is having a fulfilling career, for others it's having financial stability. But whatever our ambition, as Christopher Morley said, “There is only one success ― to be able to spend your life in your own way”. Living life on our own terms is the greatest success we can achieve.
+If you want to understand what your customer really needs, the best way is to ask them. As Lisa Stone said, “Don’t tell. Ask.” By asking your customers what they want and need, you are more likely to offer them a product or service that will meet their needs and make them happy.
 
 <!-- </quote> -->
 

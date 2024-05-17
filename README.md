@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success isn't a guarantee but that doesn't mean that we should give up. As Drew Houston stated, “Don’t worry about failure; you only have to be right once”. Taking risks and trying new things, even if they don't work out, can lead to great results and breakthroughs.
+Money isn't everything, but it is an important factor when it comes to achieving success. As Michael Dunlop said: "I treat business a bit like a computer game. I count money as points. I'm doing really well: making lots of money and lots of points." This mindset is key to staying motivated and building a successful business.
 
 <!-- </quote> -->
 

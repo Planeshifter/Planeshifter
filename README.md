@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Money isn't everything, but it is an important factor when it comes to achieving success. As Michael Dunlop said: "I treat business a bit like a computer game. I count money as points. I'm doing really well: making lots of money and lots of points." This mindset is key to staying motivated and building a successful business.
+Mark Zuckerberg is a modern example of how important it is to learn how to program. He advises us to learn and develop our skills in this field, as it can bring great success and opportunities. As he says: "My number one piece of advice is: you should learn how to program". With the right knowledge and techniques, we can unlock new possibilities.
 
 <!-- </quote> -->
 

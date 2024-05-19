@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Mark Zuckerberg is a modern example of how important it is to learn how to program. He advises us to learn and develop our skills in this field, as it can bring great success and opportunities. As he says: "My number one piece of advice is: you should learn how to program". With the right knowledge and techniques, we can unlock new possibilities.
+Why worry about the future, when today brings enough trouble? Because worrying about the future only adds to our misery. Or, as Seneca said, "The mind that is anxious about future events is miserable." This quote serves as a reminder to live in the present and enjoy the moments instead of worrying about the future. It is important to be mindful of this in our daily life because worrying about events that may or may not happen only adds to our stress and unhappiness, which in turn will negatively affect our health, relationships, and other aspects of life.
 
 <!-- </quote> -->
 

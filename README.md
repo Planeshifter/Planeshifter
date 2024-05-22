@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-The value of friendships is often measured in the currency of loyalty. As Ted Nicolas said, "Lend your friend $20, if he doesn't pay you back then he's not your friend. Money well spent". It's true that we need to be wary of people who will take advantage of us, but a true friend will always be there when you need them.
+What does the changing of the seasons bring? Change and acceptance. Or, as Henry David Thoreau said, "Live in each season as it passes; breathe the air, drink the drink, taste the fruit, and resign yourself to the influences of each." This quote encourages us to live in the present moment, to accept the change that each season brings, and to make the most of the experiences it has to offer. This is an important reminder in our lives, as we can often become overwhelmed by the increasing demands of daily life and forget to take time to appreciate the beauty of each new season.
 
 <!-- </quote> -->
 

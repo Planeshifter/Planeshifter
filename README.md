@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We should never rely too much on our plans. As Dwight D. Eisenhower said: "In preparing for battle I have always found that plans are useless, but planning is indispensable". Even if plans can fail, the process of planning will help us prepare for any eventuality.
+Money isn't everything, but it is an important factor when it comes to achieving success. As Michael Dunlop said: "I treat business a bit like a computer game. I count money as points. I'm doing really well: making lots of money and lots of points." This mindset is key to staying motivated and building a successful business.
 
 <!-- </quote> -->
 

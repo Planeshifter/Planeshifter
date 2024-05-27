@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Opportunity often comes disguised in the form of hard work. As Thomas Edison said: "Opportunity is missed by most people because it is dressed in overalls and looks like work". We should never shy away from a challenge, because that might just be the very thing that leads us to success.
+No man is an island. As the Chinese proverb says: "Make happy those who are near, and those who are far will come". Our connections to the people around us are essential to our overall contentment and success, so it's important to nurture them.
 
 <!-- </quote> -->
 

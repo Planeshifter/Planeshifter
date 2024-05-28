@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No man is an island. As the Chinese proverb says: "Make happy those who are near, and those who are far will come". Our connections to the people around us are essential to our overall contentment and success, so it's important to nurture them.
+What goes down must come up?  Yes! Or, as General George Patton said, "Success is how high you bounce after you hit bottom." This quote encourages us to focus on getting back up again after experiencing failure. It emphasizes the importance of resilience, and how it can be a powerful tool to help us reach our goals. This quote is important to me as it is a reminder that even when life knocks us down, we can always find a way to get back up and keep going. It encourages me to take each failure as an opportunity to learn and grow, and to never give up on my dreams.
 
 <!-- </quote> -->
 

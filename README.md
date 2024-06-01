@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-The value of friendships is often measured in the currency of loyalty. As Ted Nicolas said, "Lend your friend $20, if he doesn't pay you back then he's not your friend. Money well spent". It's true that we need to be wary of people who will take advantage of us, but a true friend will always be there when you need them.
+Success is a matter of believing in yourself. As the saying goes, "Believe that you will succeed ― and you will". Believe in yourself and you'll be able to accomplish anything you set your mind to. Don't be discouraged by setbacks or mistakes and stay focused on your goals. With the right attitude and effort, you can achieve success.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is a matter of believing in yourself. As the saying goes, "Believe that you will succeed ― and you will". Believe in yourself and you'll be able to accomplish anything you set your mind to. Don't be discouraged by setbacks or mistakes and stay focused on your goals. With the right attitude and effort, you can achieve success.
+Entrepreneurship is a way of life that requires dedication and sacrifice. As one student put it: "Entrepreneurship is living a few years of your life like most people won't so you can spend the rest of your life like most people can't." This means taking risks and being willing to go the extra mile in order to be successful. It's a challenging path, but ultimately rewarding. The rewards of entrepreneurship lie in the satisfaction of achieving something great.
 
 <!-- </quote> -->
 

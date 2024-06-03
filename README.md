@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Entrepreneurship is a way of life that requires dedication and sacrifice. As one student put it: "Entrepreneurship is living a few years of your life like most people won't so you can spend the rest of your life like most people can't." This means taking risks and being willing to go the extra mile in order to be successful. It's a challenging path, but ultimately rewarding. The rewards of entrepreneurship lie in the satisfaction of achieving something great.
+Having money isn't the only thing that matters. As Jim Rohn said: "The greatest reward in becoming a millionaire is not the amount of money that you earn. It is the kind of person that you have to become to become a millionaire in the first place." Money isn't everything, but the journey to get there can shape who we are and help us grow.
 
 <!-- </quote> -->
 

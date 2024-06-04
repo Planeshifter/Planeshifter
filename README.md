@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Having money isn't the only thing that matters. As Jim Rohn said: "The greatest reward in becoming a millionaire is not the amount of money that you earn. It is the kind of person that you have to become to become a millionaire in the first place." Money isn't everything, but the journey to get there can shape who we are and help us grow.
+What pulls us forward? Life's goals. Or, as Viktor Frankl said, "Life can be pulled by goals just as surely as it can be pushed by drives." This means that setting clear goals can help motivate and inspire us to attain our desires and dreams. This quote is important to consider in our daily lives as it reminds us that having a purpose and direction is what ultimately drives us forward and makes us successful.
 
 <!-- </quote> -->
 

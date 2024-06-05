@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What pulls us forward? Life's goals. Or, as Viktor Frankl said, "Life can be pulled by goals just as surely as it can be pushed by drives." This means that setting clear goals can help motivate and inspire us to attain our desires and dreams. This quote is important to consider in our daily lives as it reminds us that having a purpose and direction is what ultimately drives us forward and makes us successful.
+Life can be full of challenges, but it's up to us how we choose to face them. As Winston Churchill said: "A pessimist sees the difficulty in every opportunity; an optimist sees the opportunity in every difficulty". As challenging as life can be, we can find the silver lining and use it to our advantage.
 
 <!-- </quote> -->
 

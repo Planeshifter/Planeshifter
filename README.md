@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life can be full of challenges, but it's up to us how we choose to face them. As Winston Churchill said: "A pessimist sees the difficulty in every opportunity; an optimist sees the opportunity in every difficulty". As challenging as life can be, we can find the silver lining and use it to our advantage.
+To achieve success, there are certain rules to follow. As Roger H. Lincoln said: "There are two rules for success. 1) Never tell everything you know". Knowing when to be silent is a key part of succeeding. We have to be confident and wise when we share our knowledge.
 
 <!-- </quote> -->
 

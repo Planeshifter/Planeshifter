@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-To achieve success, there are certain rules to follow. As Roger H. Lincoln said: "There are two rules for success. 1) Never tell everything you know". Knowing when to be silent is a key part of succeeding. We have to be confident and wise when we share our knowledge.
+Money and material things can only take us so far. As Aristotle said: "After a certain point, money is meaningless. It ceases to be the goal. The game is what counts." We shouldn't strive to acquire wealth just for the sake of it. The ultimate goal should be to experience life and enjoy the journey.
 
 <!-- </quote> -->
 

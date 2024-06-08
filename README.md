@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Money and material things can only take us so far. As Aristotle said: "After a certain point, money is meaningless. It ceases to be the goal. The game is what counts." We shouldn't strive to acquire wealth just for the sake of it. The ultimate goal should be to experience life and enjoy the journey.
+William James once said: "The best use of life is to spend it for something that outlasts it". This is a reminder to focus on pursuits with lasting value instead of chasing fleeting pleasures. We should strive to make an impact that will outlive us instead of living in the moment.
 
 <!-- </quote> -->
 

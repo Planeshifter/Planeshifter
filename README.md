@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It takes more than just dreaming to be a successful entrepreneur. As Nolan Bushnell said: "The true entrepreneur is a doer, not a dreamer". You need to be proactive and willing to put in the hard work to make your dreams a reality.
+When pursuing something, we should not be afraid of failure. As Michael Dunlop said, "If you start with nothing and end up with nothing, there’s nothing lost". Even if we don't achieve our goals, we can still find value in the experience and lessons we have learned. Quote: “Change is the only constant in life.” ― Heraclitus
 
 <!-- </quote> -->
 

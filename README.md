@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-How long does it take to do anything? As long as it takes! Or, as Helen Keller said, "We can do anything we want to do if we stick to it long enough." This quote encourages us to persist in the face of difficulties, no matter how long it takes. This applies to our daily lives when we set goals, as we may hit roadblocks or experience discouragement along the way. However, if we stick with it, we can eventually attain our goals.
+You can't always get what you want. As the Chinese proverb says: "All cats love fish but fear to wet their paws". We may be tempted by something, but if it means taking a risk, we may be more cautious. We need to be brave and take a chance if we want to achieve our goals.
 
 <!-- </quote> -->
 

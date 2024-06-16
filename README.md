@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life without dreams is as meaningless as a starless night sky. To live fully and to find true joy, we must have dreams to strive for. As Malcolm Forbes said: "When you cease to dream you cease to live". To live life to the fullest, never forget to keep dreaming and working towards your dreams.
+If you want to make sure your business succeeds, follow Garrett Camp's advice and stay self-funded as long as possible. When you're self-funded, you're in control and don't have to worry about external investors or venture capitalists influencing your decisions. That way, you can build your business by sticking to your own vision and mission.
 
 <!-- </quote> -->
 

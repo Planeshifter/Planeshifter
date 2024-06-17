@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-If you want to make sure your business succeeds, follow Garrett Camp's advice and stay self-funded as long as possible. When you're self-funded, you're in control and don't have to worry about external investors or venture capitalists influencing your decisions. That way, you can build your business by sticking to your own vision and mission.
+If you want to build an exceptional team, you'll need exceptional people. As Marc Benioff, CEO of Salesforce, said: "The secret to successful hiring is this: look for the people who want to change the world." It's not just about who has the right skillset, it's about seeking out people who are motivated and passionate.
 
 <!-- </quote> -->
 

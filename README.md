@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Complaints don't have to be seen as a sign of failure. As Zig Ziglar says: "Statistics suggest that when customers complain, business owners and managers ought to get excited about it. The complaining customer represents a huge opportunity for more business." Complaints provide us with valuable insights, and if we can address the issues and make things right, the customer may even become a loyal advocate for our business. Quote: “If you can dream it, you can do it.” ― Walt Disney
+No matter what our dreams are, it's important to remember that they require hard work and dedication. As Jim Rohn said: "You must either modify your dreams or magnify your skills." We can't expect things to fall into our laps without us putting in the effort to make them happen.
 
 <!-- </quote> -->
 

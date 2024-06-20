@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No matter what our dreams are, it's important to remember that they require hard work and dedication. As Jim Rohn said: "You must either modify your dreams or magnify your skills." We can't expect things to fall into our laps without us putting in the effort to make them happen.
+Success requires action, not just words. As Andrew Fashion says: "Make it happen now, not tomorrow. Tomorrow is a loser’s excuse." We need to take ownership of our lives and take action to reach our goals. There's no time to wait or procrastinate. Now is the time.
 
 <!-- </quote> -->
 

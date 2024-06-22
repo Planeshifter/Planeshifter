@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Failure is not the end. As Robert T. Kiyosaki said: "Failure defeats losers, failure inspires winners". We should not be afraid to take risks, as it is from our mistakes that we can learn and grow. Only then can we be successful.
+Are our accomplishments really what matters? No, our aspirations do. Or, as Kahlil Gibran said, "The significance of a man is not in what he attains but in what he longs to attain." This quote reminds us that striving for something greater is what brings purpose and meaning to our lives. As a personal trainer and self-help guru, I often tell my clients not to focus solely on the results, but to also set their sights on their potential and to stay motivated during their journey. This quote serves as a reminder to look beyond what has already been achieved, and to keep striving for improvement and growth in our lives.
 
 <!-- </quote> -->
 

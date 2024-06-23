@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Are our accomplishments really what matters? No, our aspirations do. Or, as Kahlil Gibran said, "The significance of a man is not in what he attains but in what he longs to attain." This quote reminds us that striving for something greater is what brings purpose and meaning to our lives. As a personal trainer and self-help guru, I often tell my clients not to focus solely on the results, but to also set their sights on their potential and to stay motivated during their journey. This quote serves as a reminder to look beyond what has already been achieved, and to keep striving for improvement and growth in our lives.
+Words have the power to create or destroy relationships. As John Rampton said: "You can say anything to anyone, but how you say it will determine how they will react". Whether we are talking to friends, family or colleagues, it's important to be mindful of how we communicate and to choose our words wisely.
 
 <!-- </quote> -->
 

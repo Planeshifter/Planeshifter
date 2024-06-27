@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Reputation is a fragile thing. As Warren Buffett said, “It takes 20 years to build a reputation and five minutes to ruin it.” That is why it is important to think twice before we act. We should be careful not to do things that will damage our reputation, or else all our hard work will be wasted.
+When it comes to making decisions, it's important to recognize that no one is entirely right or wrong. As Bertrand Russell said: "The whole problem with the world is that fools and fanatics are always so certain of themselves, but wiser people so full of doubts." We need to be aware of our own biases and be willing to listen to other perspectives so that we can gain a better understanding.
 
 <!-- </quote> -->
 

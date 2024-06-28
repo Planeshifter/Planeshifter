@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-When it comes to making decisions, it's important to recognize that no one is entirely right or wrong. As Bertrand Russell said: "The whole problem with the world is that fools and fanatics are always so certain of themselves, but wiser people so full of doubts." We need to be aware of our own biases and be willing to listen to other perspectives so that we can gain a better understanding.
+How do you move forward in life? The best way is through it. Or, as Robert Frost said, "The best way out is always through." This means that it is better to confront your challenges and work through them than to go around them. This quote relates to my daily life by reminding me to take on any obstacles that come my way and trust that I have the perseverance to persevere and make it through.
 
 <!-- </quote> -->
 

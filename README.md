@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all want to leave a lasting impression. As Larry Page, co-founder of Google, said: "Always deliver more than expected". Strive for excellence and exceed expectations with every task. This will make you stand out from the crowd and ensure that you make your mark.
+If you want to make sure your business succeeds, follow Garrett Camp's advice and stay self-funded as long as possible. When you're self-funded, you're in control and don't have to worry about external investors or venture capitalists influencing your decisions. That way, you can build your business by sticking to your own vision and mission.
 
 <!-- </quote> -->
 

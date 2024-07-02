@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-If you want to make sure your business succeeds, follow Garrett Camp's advice and stay self-funded as long as possible. When you're self-funded, you're in control and don't have to worry about external investors or venture capitalists influencing your decisions. That way, you can build your business by sticking to your own vision and mission.
+Time passes quickly. As Mooie said, one day your life will flash before your eyes. In order to ensure that the movie of your life is worth watching, it is important to make the most of every moment and live life to the fullest. Make choices that will make you proud and happy.
 
 <!-- </quote> -->
 

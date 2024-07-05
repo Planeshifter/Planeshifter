@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Dreaming big is essential for success. As Donald Trump said: "As long as you're going to be thinking anyway, think big." Having a larger-than-life vision is the starting point of reaching our goals. We must be willing to take risks and think outside the box to make our dreams a reality.
+If you want to succeed, you need to focus on the things that do work. As Michael Dunlop said: “You’ve got to stop doing all the things that people have tried, tested, and found out don’t work.” To be successful, you need to know what works and what doesn't and focus on the things that do.
 
 <!-- </quote> -->
 

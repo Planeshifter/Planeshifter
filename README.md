@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-If you want to succeed, you need to focus on the things that do work. As Michael Dunlop said: “You’ve got to stop doing all the things that people have tried, tested, and found out don’t work.” To be successful, you need to know what works and what doesn't and focus on the things that do.
+What is a leader's most valuable commodity? Hope. Or, as Napoleon Bonaparte said, "A leader is a dealer in hope." This quote emphasizes the importance of hope in leadership, which is essential for motivating, inspiring, and guiding others towards a common goal. It is important to remember this in our daily lives, as we are all leaders in some capacity, whether it is leading our families, friends, or co-workers. Having hope, and the ability to inspire others with that hope, is a key skill to possess in order to be a successful leader.
 
 <!-- </quote> -->
 

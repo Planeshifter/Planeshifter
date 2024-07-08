@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What must be done to find joy? Take action. Or, as Benjamin Disraeli said, "Action may not always bring happiness; but there is no happiness without action." This quote emphasizes the importance of taking action in life, as no matter how hard you wish for something, it will not come to fruition until you act on it. Taking action and being proactive is important for personal growth and for achieving short- and long-term goals in life. Taking action is a powerful way to bring about positive change and increase your sense of accomplishment.
+What's done must come to an end? Indeed! Or, as Solon said, "In all things that you do, consider the end." This quote encourages us to think critically about the long-term implications of our actions. Knowing the end goal of something helps us to make better decisions in the present. By considering the end, we can understand the entire trajectory of an action and how it might play out in the future. In our daily lives, this helps to ensure that we are making decisions that will benefit us in the long run and not simply making decisions that will bring us temporary satisfaction.
 
 <!-- </quote> -->
 

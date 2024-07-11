@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Hard work is the key to success. As Vidal Sassoon said: “The only place where success comes before work is in the dictionary.” No one can ever reach their goals without putting in the effort. Success doesn't come automatically, it takes dedication and perseverance.
+We all have dreams and aspirations, but they can feel so far away. As the Chinese Proverb goes: "The loftiest towers rise from the ground". It's easy to get overwhelmed, but we can take comfort in knowing that anything is possible if we put in the hard work and dedication needed to make those dreams a reality.
 
 <!-- </quote> -->
 

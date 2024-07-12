@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all have dreams and aspirations, but they can feel so far away. As the Chinese Proverb goes: "The loftiest towers rise from the ground". It's easy to get overwhelmed, but we can take comfort in knowing that anything is possible if we put in the hard work and dedication needed to make those dreams a reality.
+We all have different definitions of success. For some, success is having a fulfilling career, for others it's having financial stability. But whatever our ambition, as Christopher Morley said, “There is only one success ― to be able to spend your life in your own way”. Living life on our own terms is the greatest success we can achieve.
 
 <!-- </quote> -->
 

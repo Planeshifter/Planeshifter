@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is achievable when you believe in yourself and in what you can do. As Napoleon Hill said, "Anything the mind can conceive and believe, it can achieve". With a strong mindset, determination and hard work, you can reach your dreams.
+What can be created without knowledge? Imagination. Or, as Albert Einstein said, "Imagination is more important than knowledge." This quote means that having ideas and thinking outside the box is more important than simply possessing existing knowledge. In life, having creative and innovative thoughts and ideas can help us to be successful and get ahead, whether in the workplace, in relationships, or in any other area. We can use our imaginations to come up with new solutions and approaches that can benefit us in the long run.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Entrepreneurship is a way of life that requires dedication and sacrifice. As one student put it: "Entrepreneurship is living a few years of your life like most people won't so you can spend the rest of your life like most people can't." This means taking risks and being willing to go the extra mile in order to be successful. It's a challenging path, but ultimately rewarding. The rewards of entrepreneurship lie in the satisfaction of achieving something great.
+How do you move forward in life? The best way is through it. Or, as Robert Frost said, "The best way out is always through." This means that it is better to confront your challenges and work through them than to go around them. This quote relates to my daily life by reminding me to take on any obstacles that come my way and trust that I have the perseverance to persevere and make it through.
 
 <!-- </quote> -->
 

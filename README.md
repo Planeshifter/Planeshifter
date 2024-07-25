@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's easy to come up with ideas, but the hard part is putting them into action. As Guy Kawasaki said: "Ideas are easy. Implementation is hard." We need to go beyond just dreaming and come up with plans to make our dreams come true. Without dedication and strategy, our ideas will remain just that - ideas.
+Where can strength and confidence be found? Within. Or, as Anna Freud said, "I was always looking outside myself for strength and confidence, but it comes from within. It is there all of the time." This quote emphasizes the importance of self-confidence and self-reliance. It is important to remember that our internal resources are just as valid and powerful as those we find in the external world. When we are able to tap into the confidence and strength that lies within us, we can persevere in the face of life's challenges and create the success we desire.
 
 <!-- </quote> -->
 

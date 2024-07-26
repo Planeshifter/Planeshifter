@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Where can strength and confidence be found? Within. Or, as Anna Freud said, "I was always looking outside myself for strength and confidence, but it comes from within. It is there all of the time." This quote emphasizes the importance of self-confidence and self-reliance. It is important to remember that our internal resources are just as valid and powerful as those we find in the external world. When we are able to tap into the confidence and strength that lies within us, we can persevere in the face of life's challenges and create the success we desire.
+No matter how small or insignificant you may feel, never let anyone bring you down or belittle your ambitions. Remember, as Mark Twain said: “Keep away from people who try to belittle your ambitions. Small people always do that, but the really great make you feel that you, too, can become great.” Surround yourself with people who will lift you up and motivate you to be your best.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No matter how small or insignificant you may feel, never let anyone bring you down or belittle your ambitions. Remember, as Mark Twain said: “Keep away from people who try to belittle your ambitions. Small people always do that, but the really great make you feel that you, too, can become great.” Surround yourself with people who will lift you up and motivate you to be your best.
+Live with purpose. As Mooie said, one day your life will flash before your eyes. Make sure that when that day comes, you have created a life worth looking back on. Fill your life with meaningful moments, experiences and relationships, and it will be worth watching.
 
 <!-- </quote> -->
 

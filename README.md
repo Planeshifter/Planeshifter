@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No matter how scared we are, we cannot let the fear of failure stop us from achieving our dreams. As Kevin Plank, CEO of Under Armour said: "There’s an entrepreneur right now, scared to death, making excuses, saying, ‘It’s not the right time just yet.’ There’s no such thing as a good time. Get out of your garage and go take a chance, and start your business." We can't wait for the ideal circumstances to take a shot at success. We must take the plunge and make our own luck. Quote: "You can't connect the dots looking forward; you can only connect them looking backwards. So you have to trust that the dots will somehow connect in your future. ― Steve Jobs
+What is a leader's most valuable commodity? Hope. Or, as Napoleon Bonaparte said, "A leader is a dealer in hope." This quote emphasizes the importance of hope in leadership, which is essential for motivating, inspiring, and guiding others towards a common goal. It is important to remember this in our daily lives, as we are all leaders in some capacity, whether it is leading our families, friends, or co-workers. Having hope, and the ability to inspire others with that hope, is a key skill to possess in order to be a successful leader.
 
 <!-- </quote> -->
 

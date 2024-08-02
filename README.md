@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Leadership is key to success. Charles Maurice said it best when he proclaimed, "I am more afraid of an army of one hundred sheep led by a lion than an army of one hundred lions led by a sheep." True leaders don't just follow the crowd, they have the courage and conviction to blaze their own path and inspire others to follow.
+Dreaming big is essential for success. As Donald Trump said: "As long as you're going to be thinking anyway, think big." Having a larger-than-life vision is the starting point of reaching our goals. We must be willing to take risks and think outside the box to make our dreams a reality.
 
 <!-- </quote> -->
 

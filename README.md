@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Dreaming big is essential for success. As Donald Trump said: "As long as you're going to be thinking anyway, think big." Having a larger-than-life vision is the starting point of reaching our goals. We must be willing to take risks and think outside the box to make our dreams a reality.
+The people you surround yourself with have a major influence on who you are. As Booker T. Washington said: "Associate yourself with people of good quality, for it is better to be alone than in bad company." Who we spend our time with matters. When we choose our friends wisely, we can become better versions of ourselves.
 
 <!-- </quote> -->
 

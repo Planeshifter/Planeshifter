@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-The people you surround yourself with have a major influence on who you are. As Booker T. Washington said: "Associate yourself with people of good quality, for it is better to be alone than in bad company." Who we spend our time with matters. When we choose our friends wisely, we can become better versions of ourselves.
+How can hard work turn solutions into reality? By taking the necessary steps to make it happen. Or, as Ullery said, "Careful thinking and hard work will solve nearly all your problems. Try and see for yourself." This quote speaks to the power of taking action and persevering in order to achieve success. It is an essential reminder that often times our problems can be solved if we are willing to put in the hard work and effort. It's an important lesson that it is often the effort we put in that makes the difference between success and failure.
 
 <!-- </quote> -->
 

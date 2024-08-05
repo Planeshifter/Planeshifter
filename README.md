@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-How can hard work turn solutions into reality? By taking the necessary steps to make it happen. Or, as Ullery said, "Careful thinking and hard work will solve nearly all your problems. Try and see for yourself." This quote speaks to the power of taking action and persevering in order to achieve success. It is an essential reminder that often times our problems can be solved if we are willing to put in the hard work and effort. It's an important lesson that it is often the effort we put in that makes the difference between success and failure.
+No one can deny the importance of a good education. However, Jim Rohn, the author and speaker, points out that education should not be limited to the classroom. He says: "Formal education will make you a living; self-education will make you a fortune." Self-education is just as necessary and can be the difference between a good life and a great one.
 
 <!-- </quote> -->
 

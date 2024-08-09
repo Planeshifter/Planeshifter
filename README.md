@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Education is an investment in the future. As Derek Bok said, "If you think education is expensive, try ignorance". Not educating oneself can cost much more in the long run. Investing in knowledge, skills and experience will build a solid foundation for success.
+We should never rely too much on our plans. As Dwight D. Eisenhower said: "In preparing for battle I have always found that plans are useless, but planning is indispensable". Even if plans can fail, the process of planning will help us prepare for any eventuality.
 
 <!-- </quote> -->
 

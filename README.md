@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Thomas Alva Edison is an epitome of determination and resilience. He said, “I have not failed. I've just found 10,000 ways that won't work.” To him, failure was just another step closer to success. He never gave up and kept trying until he achieved what he wanted. This inspiring quote shows that if you strive for success and never give up, you can eventually reach your goals.
+When starting a business, it's essential to plan for the unexpected. As Richard Harroch, Venture Capitalist, puts it: "It’s almost always harder to raise capital than you thought it would be, and it always takes longer. So plan for that." It's important to give yourself enough time and have a backup plan in case things take longer than expected.
 
 <!-- </quote> -->
 

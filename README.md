@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Competition is a part of life, but it's not for everyone. As the saying goes, "If you don’t have a competitive advantage ― don’t compete". It's not just about winning, but it's about setting yourself up for success by ensuring that you have the right resources and skills to be successful. Before entering a competition, it's important to make sure that you have an advantage that can help you stand out from the crowd.
+We all have our own limitations, but we should never let those limit us. As Steve Case said: "You shouldn't focus on why you can't do something, which is what most people do. You should focus on why perhaps you can, and be one of the exceptions." It's important to stay positive and determined no matter what obstacles you may face.
 
 <!-- </quote> -->
 

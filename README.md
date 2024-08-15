@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all have our own limitations, but we should never let those limit us. As Steve Case said: "You shouldn't focus on why you can't do something, which is what most people do. You should focus on why perhaps you can, and be one of the exceptions." It's important to stay positive and determined no matter what obstacles you may face.
+What teaches us more than books? Years. Or, as Berthold Auerbach said, "Years teach us more than books." This quote emphasizes the importance of experience in learning, which is not limited to books. It is related to our daily life because it encourages us to learn through experience rather than just relying on books; we can gain knowledge and wisdom from our own experiences.
 
 <!-- </quote> -->
 

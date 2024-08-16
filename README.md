@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What teaches us more than books? Years. Or, as Berthold Auerbach said, "Years teach us more than books." This quote emphasizes the importance of experience in learning, which is not limited to books. It is related to our daily life because it encourages us to learn through experience rather than just relying on books; we can gain knowledge and wisdom from our own experiences.
+We can't let safety and comfort keep us from taking risks and achieving our dreams. As William Shedd said: "A ship in harbor is safe. But that’s now what ships are built for". We can't let our fear of failure hold us back from pursing our goals. Instead, we must take bold steps forward with confidence and faith.
 
 <!-- </quote> -->
 

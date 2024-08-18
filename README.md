@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-When it comes to making decisions, it's important to recognize that no one is entirely right or wrong. As Bertrand Russell said: "The whole problem with the world is that fools and fanatics are always so certain of themselves, but wiser people so full of doubts." We need to be aware of our own biases and be willing to listen to other perspectives so that we can gain a better understanding.
+Why is it so hard to say no? To be a leader you must be strong. Or, as Tony Blair said, "The art of leadership is saying no, not yes. It is very easy to say yes." The idea is that a leader needs to make difficult decisions and stand by them, even if it means saying no and disappointing people. This relates to my daily life because I often have to make tough decisions and stand by them, even when it isn't popular. This quote reminds me that I am a leader and need to be strong and confident in my decisions.
 
 <!-- </quote> -->
 

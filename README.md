@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Why is it so hard to say no? To be a leader you must be strong. Or, as Tony Blair said, "The art of leadership is saying no, not yes. It is very easy to say yes." The idea is that a leader needs to make difficult decisions and stand by them, even if it means saying no and disappointing people. This relates to my daily life because I often have to make tough decisions and stand by them, even when it isn't popular. This quote reminds me that I am a leader and need to be strong and confident in my decisions.
+What should you do if trouble clouds your vision? Keep in the sunlight. Or, as Benjamin Franklin said, "Do not anticipate trouble or worry about what may never happen. Keep in the sunlight." This quote emphasizes the importance of being in the present moment and not worrying about future problems. It is important to stay focused on the here and now and not anticipate problems that may never come. This mindset helps us to enjoy life more and to be more mindful of our goals and ambitions.
 
 <!-- </quote> -->
 

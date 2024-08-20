@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What should you do if trouble clouds your vision? Keep in the sunlight. Or, as Benjamin Franklin said, "Do not anticipate trouble or worry about what may never happen. Keep in the sunlight." This quote emphasizes the importance of being in the present moment and not worrying about future problems. It is important to stay focused on the here and now and not anticipate problems that may never come. This mindset helps us to enjoy life more and to be more mindful of our goals and ambitions.
+It's not enough to just have a job. As Michael Gerber said: "The entrepreneur builds an enterprise; the technician builds a job". To really make a difference, we need to open ourselves to the possibility of creating something more. When we take the risk of stepping outside of our comfort zone and pursue our passion, we can build something that lasts.
 
 <!-- </quote> -->
 

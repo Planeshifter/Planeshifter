@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What did Thomas Edison do to succeed? He failed. Or, as Thomas Edison said, "I failed my way to success". This quote reminds us that success does not come without hard work and failure, and that it is important to learn from mistakes and keep trying. In our daily lives, we must have the courage to try new things, take risks, and learn from our mistakes in order to reach our goals.
+Sometimes we can't undo the opportunities missed in the past. As the Chinese proverb states: "The best time to plant a tree is twenty years ago. The second best time is now." We must make the most of our current situation and take advantage of the opportunities in front of us.
 
 <!-- </quote> -->
 

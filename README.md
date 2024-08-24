@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Sometimes we can't undo the opportunities missed in the past. As the Chinese proverb states: "The best time to plant a tree is twenty years ago. The second best time is now." We must make the most of our current situation and take advantage of the opportunities in front of us.
+There is nothing more powerful than a dream. As Malcolm Forbes said, “When you cease to dream you cease to live”. Dreams provide us with hope and motivation to strive for greatness, and without them, life would be meaningless. So never give up on your dreams and keep living.
 
 <!-- </quote> -->
 

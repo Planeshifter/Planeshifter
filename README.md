@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-The people you surround yourself with have a major influence on who you are. As Booker T. Washington said: "Associate yourself with people of good quality, for it is better to be alone than in bad company." Who we spend our time with matters. When we choose our friends wisely, we can become better versions of ourselves.
+Money and material things can only take us so far. As Aristotle said: "After a certain point, money is meaningless. It ceases to be the goal. The game is what counts." We shouldn't strive to acquire wealth just for the sake of it. The ultimate goal should be to experience life and enjoy the journey.
 
 <!-- </quote> -->
 

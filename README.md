@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Why bother if all obstacles must be cleared first? Because nothing will get done. Or, as Samuel Johnson said, Nothing will ever be attempted if all possible objections must first be overcome. This quote reminds us that it is not enough to just see the potential benefits of a task, but that we must take action in order to get something done. In our lives, this means that if we want to achieve our goals, we must be willing to take risks and overcome any obstacles that stand in our way.
+Life is a precious gift that we must learn to cherish and appreciate. As Sid Caesar said: "In between goals is a thing called life, that has to be lived and enjoyed". We must take the time to enjoy the moments and appreciate the journey, not just the destination.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is a precious gift that we must learn to cherish and appreciate. As Sid Caesar said: "In between goals is a thing called life, that has to be lived and enjoyed". We must take the time to enjoy the moments and appreciate the journey, not just the destination.
+Dreams can become reality with the right mindset. Dr. Napoleon Hill said it best: “Whatever the mind can conceive and believe, the mind can achieve.” Believe in yourself and your potential, and you can achieve anything.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-How can we stay strong in difficult times? Never give in, no matter the opposition. Or, as Winston Churchill said, "Never, never, never, never, in nothing great or small, large or petty, never give in except to convictions of honour and good sense. Never yield to force; never yield to the apparently overwhelming might of the enemy." Self-control, resilience, and perseverance are essential for success and Churchill's quote is a reminder to never give in, no matter the challenge. This quote relates to our daily lives because it encourages us to stay focused on our goals and objectives, and to keep striving for them no matter the obstacles that we might face.
+Life is full of tough decisions, and as Timothy Ferriss advises, sometimes it's best to take the plunge and make a move, even if the timing isn't perfect. He said, "For all of the most important things, the timing always sucks. Waiting for a good time to quit your job? The stars will never align and the traffic lights of life will never all be green at the same time. The universe doesn’t conspire against you, but it doesn’t go out of its way to line up the pins either." Don't be tempted to procrastinate, if something is important to you, take the plunge and start now.
 
 <!-- </quote> -->
 

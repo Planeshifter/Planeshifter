@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is full of tough decisions, and as Timothy Ferriss advises, sometimes it's best to take the plunge and make a move, even if the timing isn't perfect. He said, "For all of the most important things, the timing always sucks. Waiting for a good time to quit your job? The stars will never align and the traffic lights of life will never all be green at the same time. The universe doesn’t conspire against you, but it doesn’t go out of its way to line up the pins either." Don't be tempted to procrastinate, if something is important to you, take the plunge and start now.
+Having an idea is only the first step to achieving success. As Todd Garland, founder of BuySellAds, said: "Openly share and talk to people about your idea. Use their lack of interest or doubt to fuel your motivation to make it happen." It's important to use criticism and negativity constructively, as it can help to motivate you and push you to reach your goals. Quote: "Success is not the key to happiness. Happiness is the key to success. ― Albert Schweitzer
 
 <!-- </quote> -->
 

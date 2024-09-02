@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Having an idea is only the first step to achieving success. As Todd Garland, founder of BuySellAds, said: "Openly share and talk to people about your idea. Use their lack of interest or doubt to fuel your motivation to make it happen." It's important to use criticism and negativity constructively, as it can help to motivate you and push you to reach your goals. Quote: "Success is not the key to happiness. Happiness is the key to success. ― Albert Schweitzer
+Success isn't a guarantee but that doesn't mean that we should give up. As Drew Houston stated, “Don’t worry about failure; you only have to be right once”. Taking risks and trying new things, even if they don't work out, can lead to great results and breakthroughs.
 
 <!-- </quote> -->
 

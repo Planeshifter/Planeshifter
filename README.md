@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success isn't a guarantee but that doesn't mean that we should give up. As Drew Houston stated, “Don’t worry about failure; you only have to be right once”. Taking risks and trying new things, even if they don't work out, can lead to great results and breakthroughs.
+Success requires us to take risks and try new things, even if it means making mistakes along the way. As Thomas J. Watson said: “Double your rate of failure. You are thinking of failure as the enemy of success. But it isn’t at all. You can be discouraged by failure or you can learn from it, so go ahead and make mistakes. Make all you can. Because remember that’s where you will find success.” Embrace failure as a learning opportunity and success will eventually come.
 
 <!-- </quote> -->
 

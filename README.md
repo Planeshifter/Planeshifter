@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success requires us to take risks and try new things, even if it means making mistakes along the way. As Thomas J. Watson said: “Double your rate of failure. You are thinking of failure as the enemy of success. But it isn’t at all. You can be discouraged by failure or you can learn from it, so go ahead and make mistakes. Make all you can. Because remember that’s where you will find success.” Embrace failure as a learning opportunity and success will eventually come.
+Failure is not the end. As Thomas Edison said, "If I find 10,000 ways something won’t work, I haven’t failed. I am not discouraged, because every wrong attempt discarded is often a step forward." We can learn from our mistakes and use the knowledge to take one step closer to success.
 
 <!-- </quote> -->
 

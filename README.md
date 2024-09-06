@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Leadership doesn't mean commanding and controlling people. Instead, it's about inspiring and motivating them. As Charles S. Lauer said: "Leaders don’t force people to follow, they invite them on a journey". True leaders are able to bring out the best in people and unite them towards a common goal.
+It takes time and effort to get to where we want to be. As the Chinese proverb says, "A jade stone is useless before it is processed; a man is good-for-nothing until he is educated". Education is the key to unlocking our potential and achieving our goals. We must be open to learning, growing and developing our skills if we want to make something of ourselves.
 
 <!-- </quote> -->
 

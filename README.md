@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is often a result of hard work and determination. As Zig Ziglar said: "One can get anything if he is willing to help enough others get what they want." We can't expect to achieve our goals if we don't first contribute to the success of others. By taking the time to help and support others, we create an environment of collaboration and cooperation that ultimately benefits us all.
+We all want to achieve success, but it's often easier said than done. As Howard Schultz said: "Risk more than others think is safe. Dream more than others think is practical." It's a difficult balance, but it's essential to reach our goals. Take risks, dare to dream and don't be afraid to reach for the stars.
 
 <!-- </quote> -->
 

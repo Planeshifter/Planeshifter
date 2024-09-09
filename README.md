@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all want to achieve success, but it's often easier said than done. As Howard Schultz said: "Risk more than others think is safe. Dream more than others think is practical." It's a difficult balance, but it's essential to reach our goals. Take risks, dare to dream and don't be afraid to reach for the stars.
+What determines the quality of life? Your thoughts. Or, as Marcus Aurelius said, "The happiness of your life depends upon the quality of your thoughts; therefore guard accordingly." This quote is emphasizing the importance of watching our thoughts, as they determine how happy our lives will be. We cannot control every situation that arises in life, but we can control our thoughts and how we respond to them. This quote encourages us to be mindful of the thoughts that pass through our minds, and to keep the positive ones that lead to a happy life.
 
 <!-- </quote> -->
 

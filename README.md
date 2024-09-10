@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What determines the quality of life? Your thoughts. Or, as Marcus Aurelius said, "The happiness of your life depends upon the quality of your thoughts; therefore guard accordingly." This quote is emphasizing the importance of watching our thoughts, as they determine how happy our lives will be. We cannot control every situation that arises in life, but we can control our thoughts and how we respond to them. This quote encourages us to be mindful of the thoughts that pass through our minds, and to keep the positive ones that lead to a happy life.
+What should you do to aim higher than the average? Aim out of the ballpark. What do you do when you want to hit it out of the park? A: Don't bunt! How can you reach your highest potential? A: Aim out of the ballpark. Or, as David Ogilvy said, "Don't bunt. Aim out of the ballpark." This quote encourages us to take chances and strive for excellence: to aim higher than the average and try to achieve something extraordinary. In our daily lives, this quote is a reminder to us that we should not be content with mediocrity or settling for the status quo. Instead, we should take risks, push ourselves beyond our comfort zone, and strive for greatness.
 
 <!-- </quote> -->
 

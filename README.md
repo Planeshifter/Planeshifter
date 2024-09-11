@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What should you do to aim higher than the average? Aim out of the ballpark. What do you do when you want to hit it out of the park? A: Don't bunt! How can you reach your highest potential? A: Aim out of the ballpark. Or, as David Ogilvy said, "Don't bunt. Aim out of the ballpark." This quote encourages us to take chances and strive for excellence: to aim higher than the average and try to achieve something extraordinary. In our daily lives, this quote is a reminder to us that we should not be content with mediocrity or settling for the status quo. Instead, we should take risks, push ourselves beyond our comfort zone, and strive for greatness.
+What's the best way to find success? Take the next bus that comes along. Or, as Richard Branson said, "Business opportunities are like buses - there's always another one coming." This quote stresses the importance of taking risks and seizing opportunities that come your way. As personal trainers and self-help gurus, it is important to remind our clients that they should never be afraid to take chances and explore new possibilities. If they miss out on one opportunity, there will always be another.
 
 <!-- </quote> -->
 

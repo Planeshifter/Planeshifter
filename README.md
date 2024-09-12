@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What's the best way to find success? Take the next bus that comes along. Or, as Richard Branson said, "Business opportunities are like buses - there's always another one coming." This quote stresses the importance of taking risks and seizing opportunities that come your way. As personal trainers and self-help gurus, it is important to remind our clients that they should never be afraid to take chances and explore new possibilities. If they miss out on one opportunity, there will always be another.
+We live in a world of constant change, and adaptation is key to success. As Napoleon Hill said: "If you’re not learning while you’re earning, you’re cheating yourself out of the better portion of your compensation." It's not enough to just stay in one place and expect things to come your way. You owe it to yourself to invest in your own education and growth.
 
 <!-- </quote> -->
 

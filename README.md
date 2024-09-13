@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We live in a world of constant change, and adaptation is key to success. As Napoleon Hill said: "If you’re not learning while you’re earning, you’re cheating yourself out of the better portion of your compensation." It's not enough to just stay in one place and expect things to come your way. You owe it to yourself to invest in your own education and growth.
+You can't expect success if you don't take action. As Agatha Christie said: "The secret of getting ahead is getting started". It's a simple yet powerful concept that should be kept in mind. If you don‘t take the first step, you won‘t get anywhere.
 
 <!-- </quote> -->
 

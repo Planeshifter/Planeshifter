@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You can't expect success if you don't take action. As Agatha Christie said: "The secret of getting ahead is getting started". It's a simple yet powerful concept that should be kept in mind. If you don‘t take the first step, you won‘t get anywhere.
+Failure is an essential part of success. As Jeff Bezos said: "If you want to be inventive, you have to be willing to fail". We can’t be scared of the possibility of failure. It’s only through repeated attempts that we can find our way to the right solution.
 
 <!-- </quote> -->
 

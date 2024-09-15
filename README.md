@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Failure is an essential part of success. As Jeff Bezos said: "If you want to be inventive, you have to be willing to fail". We can’t be scared of the possibility of failure. It’s only through repeated attempts that we can find our way to the right solution.
+The key to success isn't just about getting started, it's about getting noticed. As Steve Case said: "It's not about how to get started; it's about how to get noticed." It's not enough to just have an idea, you have to be able to stand out and get noticed to really succeed.
 
 <!-- </quote> -->
 

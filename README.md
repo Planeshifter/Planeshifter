@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-The key to success isn't just about getting started, it's about getting noticed. As Steve Case said: "It's not about how to get started; it's about how to get noticed." It's not enough to just have an idea, you have to be able to stand out and get noticed to really succeed.
+It's true that success begets success. As Tony Robbins put it: "People who succeed have momentum. The more they succeed, the more they want to succeed, and the more they find a way to succeed". The opposite is also true: if you're constantly failing, it can become a self-fulfilling prophecy. The key is to stay positive and keep trying despite the setbacks.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's true that success begets success. As Tony Robbins put it: "People who succeed have momentum. The more they succeed, the more they want to succeed, and the more they find a way to succeed". The opposite is also true: if you're constantly failing, it can become a self-fulfilling prophecy. The key is to stay positive and keep trying despite the setbacks.
+Are our accomplishments really what matters? No, our aspirations do. Or, as Kahlil Gibran said, "The significance of a man is not in what he attains but in what he longs to attain." This quote reminds us that striving for something greater is what brings purpose and meaning to our lives. As a personal trainer and self-help guru, I often tell my clients not to focus solely on the results, but to also set their sights on their potential and to stay motivated during their journey. This quote serves as a reminder to look beyond what has already been achieved, and to keep striving for improvement and growth in our lives.
 
 <!-- </quote> -->
 

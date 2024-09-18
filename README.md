@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Are our accomplishments really what matters? No, our aspirations do. Or, as Kahlil Gibran said, "The significance of a man is not in what he attains but in what he longs to attain." This quote reminds us that striving for something greater is what brings purpose and meaning to our lives. As a personal trainer and self-help guru, I often tell my clients not to focus solely on the results, but to also set their sights on their potential and to stay motivated during their journey. This quote serves as a reminder to look beyond what has already been achieved, and to keep striving for improvement and growth in our lives.
+Do we ever really get what we pay for? This thought-provoking quote by Steven Wright says it all: "Ever notice how it’s a penny for your thoughts, yet you put in your two-cents? Someone is making a penny on the deal." We might think we're getting a good deal, but in reality, we're usually paying more than we realize.
 
 <!-- </quote> -->
 

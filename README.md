@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Do we ever really get what we pay for? This thought-provoking quote by Steven Wright says it all: "Ever notice how it’s a penny for your thoughts, yet you put in your two-cents? Someone is making a penny on the deal." We might think we're getting a good deal, but in reality, we're usually paying more than we realize.
+Business isn't about taking but giving. Robert Bosch captures this perfectly in his quote: "I don’t pay good wages because I have a lot of money; I have a lot of money because I pay good wages." Good wages should be a priority for any successful business. Workers who are paid well tend to be more motivated and productive, which leads to greater profits for the business.
 
 <!-- </quote> -->
 

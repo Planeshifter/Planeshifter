@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Business isn't about taking but giving. Robert Bosch captures this perfectly in his quote: "I don’t pay good wages because I have a lot of money; I have a lot of money because I pay good wages." Good wages should be a priority for any successful business. Workers who are paid well tend to be more motivated and productive, which leads to greater profits for the business.
+Entrepreneurship is a way of life that requires dedication and sacrifice. As one student put it: "Entrepreneurship is living a few years of your life like most people won't so you can spend the rest of your life like most people can't." This means taking risks and being willing to go the extra mile in order to be successful. It's a challenging path, but ultimately rewarding. The rewards of entrepreneurship lie in the satisfaction of achieving something great.
 
 <!-- </quote> -->
 

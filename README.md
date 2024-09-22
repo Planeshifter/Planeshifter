@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Entrepreneurship is a way of life that requires dedication and sacrifice. As one student put it: "Entrepreneurship is living a few years of your life like most people won't so you can spend the rest of your life like most people can't." This means taking risks and being willing to go the extra mile in order to be successful. It's a challenging path, but ultimately rewarding. The rewards of entrepreneurship lie in the satisfaction of achieving something great.
+Change can be daunting, but it is also an opportunity. As Peter F. Drucker said, the entrepreneur always searches for change, responds to it, and exploits it as an opportunity. To succeed in this ever-changing world, we have to be agile and ready to seize the opportunities that come our way.
 
 <!-- </quote> -->
 

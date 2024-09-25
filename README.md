@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's not enough to just have a job. As Michael Gerber said: "The entrepreneur builds an enterprise; the technician builds a job". To really make a difference, we need to open ourselves to the possibility of creating something more. When we take the risk of stepping outside of our comfort zone and pursue our passion, we can build something that lasts.
+Success requires us to take risks and try new things, even if it means making mistakes along the way. As Thomas J. Watson said: “Double your rate of failure. You are thinking of failure as the enemy of success. But it isn’t at all. You can be discouraged by failure or you can learn from it, so go ahead and make mistakes. Make all you can. Because remember that’s where you will find success.” Embrace failure as a learning opportunity and success will eventually come.
 
 <!-- </quote> -->
 

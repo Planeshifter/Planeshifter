@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's not the strongest or the smartest that will be successful—it's the ones who have laser-like focus. As Bruce Lee famously said, “The successful warrior is the average man, with laser-like focus.” Having the right mindset, discipline, and determination can take us much farther than any talent or IQ.
+Why can't you please everyone? You can't please everyone. Or, as Herbert Bayard Swope said, "I cannot give you the formula for success, but I can give you the formula for failure - which is: Try to please everybody." This quote recognizes that it is generally not possible to please everyone and that trying to do so can be a recipe for failure. It reminds us to stay focused on our own goals and not worry too much about what others think. In our daily lives, this quote reminds us to stay true to ourselves and our values, rather than trying to live up to everyone else's expectations.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Nothing comes easy, and to be successful, we have to be dedicated and passionate. Thomas J. Watson said it best: "To be successful, you have to have your heart in your business, and your business in your heart". We must do our best and put in the effort to reach our goals.
+We all want to make the most of our lives, but sometimes we are afraid of taking risks. As Jay Z said, “I’m not afraid of dying, I’m afraid of not trying.” To live a life without regrets, it's important to have the courage to try new things and to step out of our comfort zones.
 
 <!-- </quote> -->
 

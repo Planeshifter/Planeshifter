@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all want to make the most of our lives, but sometimes we are afraid of taking risks. As Jay Z said, “I’m not afraid of dying, I’m afraid of not trying.” To live a life without regrets, it's important to have the courage to try new things and to step out of our comfort zones.
+We live in a world of endless opportunities, but it's important to remember that we should not take on too much. As the German Proverb says: “He who begins many things finishes but few”. It is important to focus on our goals and limit distractions so that we can achieve success.
 
 <!-- </quote> -->
 

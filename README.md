@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We live in a world of endless opportunities, but it's important to remember that we should not take on too much. As the German Proverb says: “He who begins many things finishes but few”. It is important to focus on our goals and limit distractions so that we can achieve success.
+Our society often praises realism and practicality, but Will Smith reminds us that those are the most common paths to mediocrity. If we want to reach our full potential, we need to be bold and embrace the unknown. We need to take risks and go beyond what is considered ‘realistic’.
 
 <!-- </quote> -->
 

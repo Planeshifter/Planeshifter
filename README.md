@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Our society often praises realism and practicality, but Will Smith reminds us that those are the most common paths to mediocrity. If we want to reach our full potential, we need to be bold and embrace the unknown. We need to take risks and go beyond what is considered ‘realistic’.
+Past successes don't guarantee future success. As Babe Ruth said: "Yesterday's home runs don't win today's games". We must keep working hard and pushing ourselves in order to stay ahead. We can't rest on our laurels and expect to get by - we must have the drive and determination to move forward.
 
 <!-- </quote> -->
 

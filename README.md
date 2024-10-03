@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Past successes don't guarantee future success. As Babe Ruth said: "Yesterday's home runs don't win today's games". We must keep working hard and pushing ourselves in order to stay ahead. We can't rest on our laurels and expect to get by - we must have the drive and determination to move forward.
+Life is full of ups and downs. As the Chinese Proverb says: "Defeat isn't bitter if you don't swallow it". We can choose to look at failure as an opportunity to learn and grow, instead of seeing it as a permanent defeat. It is important to remember that our attitude shapes our future.
 
 <!-- </quote> -->
 

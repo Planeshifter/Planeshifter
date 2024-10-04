@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is full of ups and downs. As the Chinese Proverb says: "Defeat isn't bitter if you don't swallow it". We can choose to look at failure as an opportunity to learn and grow, instead of seeing it as a permanent defeat. It is important to remember that our attitude shapes our future.
+Prosperity is not a temporary thing. As the Chinese proverb says: "If you want one year of prosperity, grow grain. If you want ten years of prosperity, grow trees. If you want one hundred years of prosperity, grow people". True prosperity can only come from investing in our people, and in the generations to come.
 
 <!-- </quote> -->
 

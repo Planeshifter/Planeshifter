@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Prosperity is not a temporary thing. As the Chinese proverb says: "If you want one year of prosperity, grow grain. If you want ten years of prosperity, grow trees. If you want one hundred years of prosperity, grow people". True prosperity can only come from investing in our people, and in the generations to come.
+As George Burns said, it's better to fail at something we love than to be successful at something we dislike. Success without passion and joy is hollow. Life is too short to waste it on something we don't enjoy. It's important to find something we enjoy, and be passionate and determined to work hard to succeed.
 
 <!-- </quote> -->
 

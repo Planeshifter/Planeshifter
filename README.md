@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Education is an investment in the future. As Derek Bok said, "If you think education is expensive, try ignorance". Not educating oneself can cost much more in the long run. Investing in knowledge, skills and experience will build a solid foundation for success.
+Hard work and dedication are key factors in achieving success. As Joe Penna said: "Every single person I know who is successful at what they do is successful because they love doing it". To be successful, you need to have a genuine passion for what you do and put in the effort to make it happen.
 
 <!-- </quote> -->
 

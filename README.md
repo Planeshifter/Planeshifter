@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Hard work and dedication are key factors in achieving success. As Joe Penna said: "Every single person I know who is successful at what they do is successful because they love doing it". To be successful, you need to have a genuine passion for what you do and put in the effort to make it happen.
+How can a broken bird fly? It can't. Or, as Langston Hughes said, "Hold fast to dreams, for if dreams die, life is a broken winged bird that cannot fly." This quote emphasizes the importance of not giving up on our dreams in order to live a fulfilling life. Without dreams and ambition, our lives will be limited and stagnant. This quote is important because it reminds us to keep our hopes and ambitions alive and strive for the life we want.
 
 <!-- </quote> -->
 

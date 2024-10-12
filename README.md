@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Starting a business is a difficult and often daunting task. However, with the power of the internet and the speed of innovation, it presents new opportunities for entrepreneurs. As Matt Mickiewicz said: "The pace of change for entrepreneurs is rapidly accelerating, and the cost and risk of launching a new business and getting off the ground is just amazing. The ability to gain user feedback quickly and adapt to what your consumers want is totally different with the web as it is now". With the right tools and resources, entrepreneurs can turn their ideas into a reality.
+Making mistakes is part of life, and it is how we learn and grow. As John C. Maxwell said: "A man must be big enough to admit his mistakes, smart enough to profit from them, and strong enough to correct them." It takes courage to recognize our mistakes and even more courage to accept responsibility and make changes. It is a sign of strength, not weakness.
 
 <!-- </quote> -->
 

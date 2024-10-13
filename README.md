@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Making mistakes is part of life, and it is how we learn and grow. As John C. Maxwell said: "A man must be big enough to admit his mistakes, smart enough to profit from them, and strong enough to correct them." It takes courage to recognize our mistakes and even more courage to accept responsibility and make changes. It is a sign of strength, not weakness.
+What is the key to success? Taking risks. Or, as John F. Kennedy said, “Only those who dare to fail greatly can ever achieve greatly.” This speaks to the idea that unless we take risks, we cannot experience success in our lives. This quote reminds us to take risks if we want to achieve great things and not let the fear of failure hold us back.
 
 <!-- </quote> -->
 

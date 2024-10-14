@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is the key to success? Taking risks. Or, as John F. Kennedy said, “Only those who dare to fail greatly can ever achieve greatly.” This speaks to the idea that unless we take risks, we cannot experience success in our lives. This quote reminds us to take risks if we want to achieve great things and not let the fear of failure hold us back.
+No matter how big your dreams are, it’s important to focus on the present and make sure that you are doing everything you can to serve one customer at a time. As Gary Comer said, “Worry about being better; bigger will take care of itself. Think one customer at a time and take care of each one the best way you can.”
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Stepping out of our comfort zone is often the only way to achieve progress. As John Shedd said: "A ship in harbor is safe, but that’s not what ships are for". We must take chances and explore new horizons if we want to grow and succeed.
+Leaders don't rely on coercion to get the job done. As Dwight D. Eisenhower said: "Leadership is the art of getting someone else to do something you want done because he wants to do it". This requires understanding people's motivations, inspiring and connecting with them, and creating an environment of trust and open communication.
 
 <!-- </quote> -->
 

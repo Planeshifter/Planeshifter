@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Time passes quickly. As Mooie said, one day your life will flash before your eyes. In order to ensure that the movie of your life is worth watching, it is important to make the most of every moment and live life to the fullest. Make choices that will make you proud and happy.
+Sometimes, the hardest part of a task is knowing how to go about it. As Charles Steinmetz's invoice notes, the difference between success and failure often lies in the details. To create extraordinary results, we have to be willing to invest the time and energy needed to understand the nuances of the task. Without knowledge, our labour is often wasted.
 
 <!-- </quote> -->
 

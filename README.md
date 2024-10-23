@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all have unique skills and talents. As Albert Einstein said “Everyone is a genius. But if you judge a fish by its ability to climb a tree, it will spend its whole life believing it is stupid.” We should strive to appreciate and nurture our individual gifts instead of expecting them to conform to set standards.
+What should you do if trouble clouds your vision? Keep in the sunlight. Or, as Benjamin Franklin said, "Do not anticipate trouble or worry about what may never happen. Keep in the sunlight." This quote emphasizes the importance of being in the present moment and not worrying about future problems. It is important to stay focused on the here and now and not anticipate problems that may never come. This mindset helps us to enjoy life more and to be more mindful of our goals and ambitions.
 
 <!-- </quote> -->
 

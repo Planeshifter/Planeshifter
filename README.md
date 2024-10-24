@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What should you do if trouble clouds your vision? Keep in the sunlight. Or, as Benjamin Franklin said, "Do not anticipate trouble or worry about what may never happen. Keep in the sunlight." This quote emphasizes the importance of being in the present moment and not worrying about future problems. It is important to stay focused on the here and now and not anticipate problems that may never come. This mindset helps us to enjoy life more and to be more mindful of our goals and ambitions.
+Treating your customers with respect and appreciation is key to a successful business. As Chris Brogan said: "Don't treat your customers like a bunch of purses and wallets". Customers should be seen as people with needs, wants, and feelings. Focusing on creating a positive customer experience will ensure customers feel valued and appreciated.
 
 <!-- </quote> -->
 

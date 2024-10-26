@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You have the power to choose your own destiny. As the Hasidic Proverb says, “Everyone should carefully observe which way his heart draws him, and then choose that way with all his strength.” Following your heart and trusting your intuition will guide you to the best path for you.
+Abraham Lincoln said it best: “Example is not the main thing in influencing other people; it’s the only thing.” If we want to be successful in motivating and inspiring others, we need to lead by example. Our actions and words must be consistent, and we must be willing to put in the work to show others what is possible.
 
 <!-- </quote> -->
 

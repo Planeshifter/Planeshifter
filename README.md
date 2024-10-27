@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Abraham Lincoln said it best: “Example is not the main thing in influencing other people; it’s the only thing.” If we want to be successful in motivating and inspiring others, we need to lead by example. Our actions and words must be consistent, and we must be willing to put in the work to show others what is possible.
+Reputation is a fragile thing. As Warren Buffett said, “It takes 20 years to build a reputation and five minutes to ruin it.” That is why it is important to think twice before we act. We should be careful not to do things that will damage our reputation, or else all our hard work will be wasted.
 
 <!-- </quote> -->
 

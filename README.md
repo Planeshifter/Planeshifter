@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success doesn't come easy. As Zig Ziglar said: "You were born to win, but to be a winner, you must plan to win, prepare to win, and expect to win." It takes dedication and hard work to achieve our goals, but with the right attitude, anything is possible.
+There's no time like the present. As Emil Motycka said: "Start today, not tomorrow. If anything, you should have started yesterday." Procrastination is a thief of time, and every moment is an opportunity to take action, learn, and grow. Don't wait for tomorrow to do what you can do today.
 
 <!-- </quote> -->
 

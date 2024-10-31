@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-There's no time like the present. As Emil Motycka said: "Start today, not tomorrow. If anything, you should have started yesterday." Procrastination is a thief of time, and every moment is an opportunity to take action, learn, and grow. Don't wait for tomorrow to do what you can do today.
+Success is not simply a matter of luck. As Earl Wilson said: "Success is simply a matter of luck. Ask any failure." Sure, there are many fortunate events that can play a role in our achievements, but it takes hard work, persistence and dedication to get to the top.
 
 <!-- </quote> -->
 

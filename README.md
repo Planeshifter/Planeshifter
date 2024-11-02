@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You can't always get what you want. As the Chinese proverb says: "All cats love fish but fear to wet their paws". We may be tempted by something, but if it means taking a risk, we may be more cautious. We need to be brave and take a chance if we want to achieve our goals.
+You can't expect to be successful if you don't take action. As Johann Wolfgang von Goethe said, "What is not started will never get finished". Taking the first step is essential to achieving anything in life. Don't let the fear of failure hold you back; start now and success will follow.
 
 <!-- </quote> -->
 

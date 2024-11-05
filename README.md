@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Stepping out of our comfort zone is often the only way to achieve progress. As John Shedd said: "A ship in harbor is safe, but that’s not what ships are for". We must take chances and explore new horizons if we want to grow and succeed.
+Our actions speak louder than words. As Abraham Lincoln said: "Example is not the main thing in influencing other people; it's the only thing." We need to set a good example if we want to be successful in our endeavors. We should strive to be role models who inspire and motivate others.
 
 <!-- </quote> -->
 

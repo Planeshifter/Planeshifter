@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Our actions speak louder than words. As Abraham Lincoln said: "Example is not the main thing in influencing other people; it's the only thing." We need to set a good example if we want to be successful in our endeavors. We should strive to be role models who inspire and motivate others.
+Life is a precious gift that we must learn to cherish and appreciate. As Sid Caesar said: "In between goals is a thing called life, that has to be lived and enjoyed". We must take the time to enjoy the moments and appreciate the journey, not just the destination.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is a precious gift that we must learn to cherish and appreciate. As Sid Caesar said: "In between goals is a thing called life, that has to be lived and enjoyed". We must take the time to enjoy the moments and appreciate the journey, not just the destination.
+Our attitude towards life can have a big impact on our success. As Henry Ford said: "Whether you think you can or you can’t, you’re right." We are the ones who decide our fate, and our beliefs can shape our destiny. It is important to be confident in our ability to achieve our goals and to remain positive in the face of obstacles.
 
 <!-- </quote> -->
 

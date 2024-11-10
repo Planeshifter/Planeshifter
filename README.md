@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's easy to lose hope when facing uphill battles. But as Henry Ford said: "When everything seems to be going against you, remember that the airplane takes off against the wind, not with it." It's a reminder that adversity is not insurmountable and we can overcome any challenge.
+How can we achieve the impossible? By breaking it down into manageable steps. Or, as Don Lancaster said, "Most 'impossible' goals can be met simply by breaking them down into bite-size chunks, writing them down, believing them, and then going full speed ahead as if they were routine." This quote emphasizes the importance of breaking down goals into small, achievable steps in order to reach our desired outcome. This relates to personal trainers and self-help gurus because it is important to remember that any goal, no matter how ambitious, can be achieved if it is broken down into smaller, actionable steps. By breaking down our goals into achievable steps, we can stay motivated and take real, tangible steps towards achieving our goals.
 
 <!-- </quote> -->
 

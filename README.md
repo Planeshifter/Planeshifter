@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-How can we achieve the impossible? By breaking it down into manageable steps. Or, as Don Lancaster said, "Most 'impossible' goals can be met simply by breaking them down into bite-size chunks, writing them down, believing them, and then going full speed ahead as if they were routine." This quote emphasizes the importance of breaking down goals into small, achievable steps in order to reach our desired outcome. This relates to personal trainers and self-help gurus because it is important to remember that any goal, no matter how ambitious, can be achieved if it is broken down into smaller, actionable steps. By breaking down our goals into achievable steps, we can stay motivated and take real, tangible steps towards achieving our goals.
+Having money isn't the only thing that matters. As Jim Rohn said: "The greatest reward in becoming a millionaire is not the amount of money that you earn. It is the kind of person that you have to become to become a millionaire in the first place." Money isn't everything, but the journey to get there can shape who we are and help us grow.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Having money isn't the only thing that matters. As Jim Rohn said: "The greatest reward in becoming a millionaire is not the amount of money that you earn. It is the kind of person that you have to become to become a millionaire in the first place." Money isn't everything, but the journey to get there can shape who we are and help us grow.
+Social media has become an important tool for connecting with others. As Matthew Inman said, “building and hanging on to an audience is the biggest role of social media.”We must use it in a way that builds and nurtures relationships, creating strong networks that support our goals.
 
 <!-- </quote> -->
 

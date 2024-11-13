@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Social media has become an important tool for connecting with others. As Matthew Inman said, “building and hanging on to an audience is the biggest role of social media.”We must use it in a way that builds and nurtures relationships, creating strong networks that support our goals.
+When it comes to life, it pays to be daring. As the anonymous quote says, “If you’re not living life on the edge, you’re taking up too much space.” Taking risks might be uncomfortable, but it’s essential for growth. Without pushing our boundaries, we won’t be able to reach our full potential.
 
 <!-- </quote> -->
 

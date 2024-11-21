@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Sometimes, the hardest part of a task is knowing how to go about it. As Charles Steinmetz's invoice notes, the difference between success and failure often lies in the details. To create extraordinary results, we have to be willing to invest the time and energy needed to understand the nuances of the task. Without knowledge, our labour is often wasted.
+What pulls us forward? Life's goals. Or, as Viktor Frankl said, "Life can be pulled by goals just as surely as it can be pushed by drives." This means that setting clear goals can help motivate and inspire us to attain our desires and dreams. This quote is important to consider in our daily lives as it reminds us that having a purpose and direction is what ultimately drives us forward and makes us successful.
 
 <!-- </quote> -->
 

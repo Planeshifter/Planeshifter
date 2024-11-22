@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What pulls us forward? Life's goals. Or, as Viktor Frankl said, "Life can be pulled by goals just as surely as it can be pushed by drives." This means that setting clear goals can help motivate and inspire us to attain our desires and dreams. This quote is important to consider in our daily lives as it reminds us that having a purpose and direction is what ultimately drives us forward and makes us successful.
+Having a vision is important, but it's not enough. To make it happen, we must take action. As Vance Hayner wisely said: "The vision must be followed by the venture. It is not enough to stare up the steps – we must step up the stairs." We need to work hard, persist and never give up to achieve our goals.
 
 <!-- </quote> -->
 

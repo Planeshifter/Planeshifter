@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Having a vision is important, but it's not enough. To make it happen, we must take action. As Vance Hayner wisely said: "The vision must be followed by the venture. It is not enough to stare up the steps – we must step up the stairs." We need to work hard, persist and never give up to achieve our goals.
+Tim Westergen, founder of Pandora, is right when he said: "Make your team feel respected, empowered and genuinely excited about the company’s mission". Having a motivated and dedicated team is a key factor to success. It is important to create a positive and encouraging environment where employees can work to the best of their ability and be proud of the work they do.
 
 <!-- </quote> -->
 

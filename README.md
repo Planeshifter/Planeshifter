@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Tim Westergen, founder of Pandora, is right when he said: "Make your team feel respected, empowered and genuinely excited about the company’s mission". Having a motivated and dedicated team is a key factor to success. It is important to create a positive and encouraging environment where employees can work to the best of their ability and be proud of the work they do.
+William James once said: "The best use of life is to spend it for something that outlasts it". This is a reminder to focus on pursuits with lasting value instead of chasing fleeting pleasures. We should strive to make an impact that will outlive us instead of living in the moment.
 
 <!-- </quote> -->
 

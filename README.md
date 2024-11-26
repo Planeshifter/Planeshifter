@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is not a given. It is something that needs to be earned and maintained. As Cher Wang, CEO of HTC said: "It takes humility to realize that we don't know everything, not to rest on our laurels and know that we must keep learning and observing. If we don't, we can be sure some startup will be there to take our place." Learning and adapting to the ever changing environment is essential for any successful venture. We must stay humble, and be willing to experiment, in order to stay ahead of the game.
+What determines the quality of life? Your thoughts. Or, as Marcus Aurelius said, "The happiness of your life depends upon the quality of your thoughts; therefore guard accordingly." This quote is emphasizing the importance of watching our thoughts, as they determine how happy our lives will be. We cannot control every situation that arises in life, but we can control our thoughts and how we respond to them. This quote encourages us to be mindful of the thoughts that pass through our minds, and to keep the positive ones that lead to a happy life.
 
 <!-- </quote> -->
 

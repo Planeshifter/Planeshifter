@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What determines the quality of life? Your thoughts. Or, as Marcus Aurelius said, "The happiness of your life depends upon the quality of your thoughts; therefore guard accordingly." This quote is emphasizing the importance of watching our thoughts, as they determine how happy our lives will be. We cannot control every situation that arises in life, but we can control our thoughts and how we respond to them. This quote encourages us to be mindful of the thoughts that pass through our minds, and to keep the positive ones that lead to a happy life.
+We can achieve great things if we only believe in ourselves and our abilities. As Franklin D. Roosevelt once said: "The only limit to our realization of tomorrow will be our doubts of today". It's important to have faith in our dreams, and never give up on them.
 
 <!-- </quote> -->
 

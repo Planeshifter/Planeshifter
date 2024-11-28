@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We can achieve great things if we only believe in ourselves and our abilities. As Franklin D. Roosevelt once said: "The only limit to our realization of tomorrow will be our doubts of today". It's important to have faith in our dreams, and never give up on them.
+You can't just throw any feature into a project and expect it to work. As Noah Everett from Twitpic says: "A poorly implemented feature hurts more than not having it at all". It's important to take the time to make sure all features are properly thought out and implemented. This can make all the difference between success and failure.
 
 <!-- </quote> -->
 

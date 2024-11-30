@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Why can't you please everyone? You can't please everyone. Or, as Herbert Bayard Swope said, "I cannot give you the formula for success, but I can give you the formula for failure - which is: Try to please everybody." This quote recognizes that it is generally not possible to please everyone and that trying to do so can be a recipe for failure. It reminds us to stay focused on our own goals and not worry too much about what others think. In our daily lives, this quote reminds us to stay true to ourselves and our values, rather than trying to live up to everyone else's expectations.
+Having a vision is not enough if we don't take any action. As the Japanese proverb says, “Vision without action is a daydream. Action without vision is a nightmare.” If we don't have a clear plan and direction, our actions will be misguided and we will never reach our goals.
 
 <!-- </quote> -->
 

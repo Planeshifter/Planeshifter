@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Having a vision is not enough if we don't take any action. As the Japanese proverb says, “Vision without action is a daydream. Action without vision is a nightmare.” If we don't have a clear plan and direction, our actions will be misguided and we will never reach our goals.
+What comes first, commitment or action? Commitment comes first. Or, as Marcia Wieder said, "Commitment leads to action. Action brings your dream closer." This quote encourages us to take responsibility and make a commitment to our goals before we take action. When we make a conscious commitment to our dreams, we are more likely to put in the work and effort it takes to make those dreams come true. This is important to our daily lives because it allows us to create a path to success and keep ourselves motivated.
 
 <!-- </quote> -->
 

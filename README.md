@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What comes first, commitment or action? Commitment comes first. Or, as Marcia Wieder said, "Commitment leads to action. Action brings your dream closer." This quote encourages us to take responsibility and make a commitment to our goals before we take action. When we make a conscious commitment to our dreams, we are more likely to put in the work and effort it takes to make those dreams come true. This is important to our daily lives because it allows us to create a path to success and keep ourselves motivated.
+In a competitive world, it is important to stay ahead of the competition. As Roy L. Smith said: "The successful man is the one who finds out what is the matter with his business before his competitors do." To stay on top, one needs to be aware of the challenges and opportunities in the market and be able to act on them quickly.
 
 <!-- </quote> -->
 

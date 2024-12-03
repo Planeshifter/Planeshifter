@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-In a competitive world, it is important to stay ahead of the competition. As Roy L. Smith said: "The successful man is the one who finds out what is the matter with his business before his competitors do." To stay on top, one needs to be aware of the challenges and opportunities in the market and be able to act on them quickly.
+We all have dreams and aspirations, but they can feel so far away. As the Chinese Proverb goes: "The loftiest towers rise from the ground". It's easy to get overwhelmed, but we can take comfort in knowing that anything is possible if we put in the hard work and dedication needed to make those dreams a reality.
 
 <!-- </quote> -->
 

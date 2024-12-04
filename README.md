@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all have dreams and aspirations, but they can feel so far away. As the Chinese Proverb goes: "The loftiest towers rise from the ground". It's easy to get overwhelmed, but we can take comfort in knowing that anything is possible if we put in the hard work and dedication needed to make those dreams a reality.
+Opportunity often comes disguised in the form of hard work. As Thomas Edison said: "Opportunity is missed by most people because it is dressed in overalls and looks like work". We should never shy away from a challenge, because that might just be the very thing that leads us to success.
 
 <!-- </quote> -->
 

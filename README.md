@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-How can you reach success that lasts? Have a clear goal. Or, as Victor Cousins said, "In everything the ends well defined are the secret of durable success." This quote emphasizes the importance of having clear, achievable goals for lasting success. As a personal trainer and self-help guru, I emphasize that defining concrete goals is necessary for success. Setting achievable goals gives us the motivation to strive for our goals, and it also helps us stay focused and on track. Having clear goals also allows us to measure our progress and make necessary adjustments, so that we can stay on course to reach our desired outcomes.
+What is more important, the journey or the destination? The journey. Or, as Richard Monckton Milnes said, "The virtue lies in the struggle, not in the prize." This quote highlights the importance of the journey one takes to reach their goals, rather than focusing solely on the end result. We can't forget the process of getting there and the learning experiences, relationships, and personal growth that come with the struggle. Applying this to our daily life, it’s important to stay mindful and be present throughout our journey in achieving our goals, rather than just focusing on the end result of success.
 
 <!-- </quote> -->
 

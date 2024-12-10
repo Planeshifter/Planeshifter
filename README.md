@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Sometimes we can't undo the opportunities missed in the past. As the Chinese proverb states: "The best time to plant a tree is twenty years ago. The second best time is now." We must make the most of our current situation and take advantage of the opportunities in front of us.
+Treating your customers with respect and appreciation is key to a successful business. As Chris Brogan said: "Don't treat your customers like a bunch of purses and wallets". Customers should be seen as people with needs, wants, and feelings. Focusing on creating a positive customer experience will ensure customers feel valued and appreciated.
 
 <!-- </quote> -->
 

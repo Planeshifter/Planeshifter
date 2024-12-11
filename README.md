@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Treating your customers with respect and appreciation is key to a successful business. As Chris Brogan said: "Don't treat your customers like a bunch of purses and wallets". Customers should be seen as people with needs, wants, and feelings. Focusing on creating a positive customer experience will ensure customers feel valued and appreciated.
+Money cannot buy happiness and satisfaction. Charles M. Schwab was right when he said: "The man who does not work for the love of work but only for money is likely to neither make money nor find much fun in life." We should look for joy in our work, not just in the reward. It's the only way to truly achieve success.
 
 <!-- </quote> -->
 

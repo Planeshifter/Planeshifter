@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Money cannot buy happiness and satisfaction. Charles M. Schwab was right when he said: "The man who does not work for the love of work but only for money is likely to neither make money nor find much fun in life." We should look for joy in our work, not just in the reward. It's the only way to truly achieve success.
+True success is not defined by the number of possessions or accolades. Rather, Christopher Morley put it best when he said, “There is only one success- to be able to spend your life in your own way." Live life on your own terms and take control of your own destiny.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-True success is not defined by the number of possessions or accolades. Rather, Christopher Morley put it best when he said, “There is only one success- to be able to spend your life in your own way." Live life on your own terms and take control of your own destiny.
+We all have unique skills and talents. As Albert Einstein said “Everyone is a genius. But if you judge a fish by its ability to climb a tree, it will spend its whole life believing it is stupid.” We should strive to appreciate and nurture our individual gifts instead of expecting them to conform to set standards.
 
 <!-- </quote> -->
 

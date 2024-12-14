@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all have unique skills and talents. As Albert Einstein said “Everyone is a genius. But if you judge a fish by its ability to climb a tree, it will spend its whole life believing it is stupid.” We should strive to appreciate and nurture our individual gifts instead of expecting them to conform to set standards.
+Success is about more than just making money. As Winston Churchill said, "We make a living by what we get, but we make a life by what we give." By making a difference in someone else's life or by helping out in our community, we can create a meaningful, impactful life.
 
 <!-- </quote> -->
 

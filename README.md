@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is about more than just making money. As Winston Churchill said, "We make a living by what we get, but we make a life by what we give." By making a difference in someone else's life or by helping out in our community, we can create a meaningful, impactful life.
+Og Mandino's words are wise and true - victory doesn't come easy. It is only after many struggles and countless defeats that we can achieve success. We must be resilient and never give up, no matter how hard the task may seem. Only then can we taste sweet success.
 
 <!-- </quote> -->
 

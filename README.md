@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Og Mandino's words are wise and true - victory doesn't come easy. It is only after many struggles and countless defeats that we can achieve success. We must be resilient and never give up, no matter how hard the task may seem. Only then can we taste sweet success.
+Never be satisfied with what you have. As Syed Balkhi said: "You should always stay hungry. Stay hungry, so you can eat". Life is a journey and it’s important to always strive for more and never give up. Keeping your hunger alive will help you stay motivated and make progress.
 
 <!-- </quote> -->
 

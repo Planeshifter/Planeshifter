@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Taking risks is part of being an entrepreneur. As Roy Ash once said, “An entrepreneur tends to bite off a little more than he can chew hoping he’ll quickly learn how to chew it.” Though it can be daunting to take on a challenge that seems too big to handle, it’s important to remember that you have the potential to achieve it.
+We all want to leave a lasting impression. As Larry Page, co-founder of Google, said: "Always deliver more than expected". Strive for excellence and exceed expectations with every task. This will make you stand out from the crowd and ensure that you make your mark.
 
 <!-- </quote> -->
 

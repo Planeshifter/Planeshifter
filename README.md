@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all want to leave a lasting impression. As Larry Page, co-founder of Google, said: "Always deliver more than expected". Strive for excellence and exceed expectations with every task. This will make you stand out from the crowd and ensure that you make your mark.
+Leadership doesn't mean commanding and controlling people. Instead, it's about inspiring and motivating them. As Charles S. Lauer said: "Leaders don’t force people to follow, they invite them on a journey". True leaders are able to bring out the best in people and unite them towards a common goal.
 
 <!-- </quote> -->
 

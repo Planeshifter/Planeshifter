@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Leadership doesn't mean commanding and controlling people. Instead, it's about inspiring and motivating them. As Charles S. Lauer said: "Leaders don’t force people to follow, they invite them on a journey". True leaders are able to bring out the best in people and unite them towards a common goal.
+Life without dreams is as meaningless as a starless night sky. To live fully and to find true joy, we must have dreams to strive for. As Malcolm Forbes said: "When you cease to dream you cease to live". To live life to the fullest, never forget to keep dreaming and working towards your dreams.
 
 <!-- </quote> -->
 

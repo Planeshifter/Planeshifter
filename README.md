@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life without dreams is as meaningless as a starless night sky. To live fully and to find true joy, we must have dreams to strive for. As Malcolm Forbes said: "When you cease to dream you cease to live". To live life to the fullest, never forget to keep dreaming and working towards your dreams.
+If you want to succeed, you need to focus on the things that do work. As Michael Dunlop said: “You’ve got to stop doing all the things that people have tried, tested, and found out don’t work.” To be successful, you need to know what works and what doesn't and focus on the things that do.
 
 <!-- </quote> -->
 

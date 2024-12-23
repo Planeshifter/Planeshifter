@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-The best way to attain success is to trust yourself. As Ben Silbermann, co-founder of Pinterest said: "Don’t take too much advice. Most people who have a lot of advice to give... Just build things and find out if they work." We should take risks, act with confidence and not overthink every decision. That’s how innovation and genuine progress will take place.
+We live in a world where knowledge and technology are becoming increasingly important. As Bill Gates said: "Be nice to geeks, you'll probably end up working for one". We should respect the intelligence and hard work of the geeks that contribute to the advancement of our society.
 
 <!-- </quote> -->
 

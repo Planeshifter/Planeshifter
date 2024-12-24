@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We live in a world where knowledge and technology are becoming increasingly important. As Bill Gates said: "Be nice to geeks, you'll probably end up working for one". We should respect the intelligence and hard work of the geeks that contribute to the advancement of our society.
+Complaints don't have to be seen as a sign of failure. As Zig Ziglar says: "Statistics suggest that when customers complain, business owners and managers ought to get excited about it. The complaining customer represents a huge opportunity for more business." Complaints provide us with valuable insights, and if we can address the issues and make things right, the customer may even become a loyal advocate for our business. Quote: “If you can dream it, you can do it.” ― Walt Disney
 
 <!-- </quote> -->
 

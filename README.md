@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Tom Kelley said it best: "Fail often so you can succeed sooner". Trying, failing and trying again is a successful way to reach your goals. It's important to remember that mistakes are part of the learning process and will help you find out what works and what doesn't. By failing often, you'll gain important insights and be able to make adjustments to achieve success.
+Success requires hard work. As Maya Angelou said: "Nothing will work unless you do". We can't expect that things will just fall into place without any effort. We need to take action, be determined and keep pushing forward in order to reach our goals.
 
 <!-- </quote> -->
 

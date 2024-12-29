@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-The old Chinese proverb is true: “Failing to plan is planning to fail.” Without proper planning, it's impossible to achieve success. We need to set goals and create a roadmap to get there. This will give us the structure and direction needed to achieve our desired outcomes.
+Our attitude towards life can have a big impact on our success. As Henry Ford said: "Whether you think you can or you can’t, you’re right." We are the ones who decide our fate, and our beliefs can shape our destiny. It is important to be confident in our ability to achieve our goals and to remain positive in the face of obstacles.
 
 <!-- </quote> -->
 

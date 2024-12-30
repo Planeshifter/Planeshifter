@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Our attitude towards life can have a big impact on our success. As Henry Ford said: "Whether you think you can or you can’t, you’re right." We are the ones who decide our fate, and our beliefs can shape our destiny. It is important to be confident in our ability to achieve our goals and to remain positive in the face of obstacles.
+Leaders don't rely on coercion to get the job done. As Dwight D. Eisenhower said: "Leadership is the art of getting someone else to do something you want done because he wants to do it". This requires understanding people's motivations, inspiring and connecting with them, and creating an environment of trust and open communication.
 
 <!-- </quote> -->
 

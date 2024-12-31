@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Leaders don't rely on coercion to get the job done. As Dwight D. Eisenhower said: "Leadership is the art of getting someone else to do something you want done because he wants to do it". This requires understanding people's motivations, inspiring and connecting with them, and creating an environment of trust and open communication.
+Success in business is not easy to achieve. As David Rockefeller said: "Success in business requires training and discipline and hard work." We must be willing to put in the effort and take on the challenge to create something truly impactful. With hard work and dedication, the opportunities are just as great today as ever before.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success in business is not easy to achieve. As David Rockefeller said: "Success in business requires training and discipline and hard work." We must be willing to put in the effort and take on the challenge to create something truly impactful. With hard work and dedication, the opportunities are just as great today as ever before.
+Success is often a matter of timing and discretion. Chris Dixon, co-founder of Hunch, said: "Get big quietly, so you don’t tip off potential competitors". Taking a slow and steady approach to growth is key to staying ahead in the game and avoiding unwanted attention.
 
 <!-- </quote> -->
 

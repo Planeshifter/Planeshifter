@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is often a matter of timing and discretion. Chris Dixon, co-founder of Hunch, said: "Get big quietly, so you don’t tip off potential competitors". Taking a slow and steady approach to growth is key to staying ahead in the game and avoiding unwanted attention.
+No matter how much we achieve, success is not only measured by material possessions. Bo Bennet reminds us that we should strive for personal growth and development in order to be truly successful. Success is not what we have, but who we are and how far we have come.
 
 <!-- </quote> -->
 

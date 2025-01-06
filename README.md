@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Taking risks is the only way to achieve success. As Casey Neistat, filmmaker said: “Every time I took these bigger risks, the opportunity for a bigger payout was always there.” We must be brave and go beyond our comfort zone if we truly want to reach our goals.
+Henry Ford had a great vision for his business. He said "A business that makes nothing but money is a poor business." This is a reminder that success can’t just be measured in dollars and cents. To be successful, a business needs to provide value and satisfaction to its customers. Money is just the reward for a job well done.
 
 <!-- </quote> -->
 

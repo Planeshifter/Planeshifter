@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Henry Ford had a great vision for his business. He said "A business that makes nothing but money is a poor business." This is a reminder that success can’t just be measured in dollars and cents. To be successful, a business needs to provide value and satisfaction to its customers. Money is just the reward for a job well done.
+In difficult times we have to have a special kind of courage to make it through. As Robert Kiyosaki said, “When times are bad is when the real entrepreneurs emerge”. We have to be willing to face the challenges, take risks, and persevere. Those are the qualities of a true entrepreneur.
 
 <!-- </quote> -->
 

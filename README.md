@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-In difficult times we have to have a special kind of courage to make it through. As Robert Kiyosaki said, “When times are bad is when the real entrepreneurs emerge”. We have to be willing to face the challenges, take risks, and persevere. Those are the qualities of a true entrepreneur.
+What do dreamers do? Shape the future. Or, as Eleanor Roosevelt said, "The future belongs to those who believe in the beauty of their dreams." This quote encourages us to believe in the potential of our dreams, and to have the courage to pursue them. It is an important reminder that we have the power to create the future we want, and that our dreams have the potential to become a reality. By believing in our dreams, we can take steps to make them happen and ultimately shape our own futures.
 
 <!-- </quote> -->
 

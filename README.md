@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What do dreamers do? Shape the future. Or, as Eleanor Roosevelt said, "The future belongs to those who believe in the beauty of their dreams." This quote encourages us to believe in the potential of our dreams, and to have the courage to pursue them. It is an important reminder that we have the power to create the future we want, and that our dreams have the potential to become a reality. By believing in our dreams, we can take steps to make them happen and ultimately shape our own futures.
+It's not enough to just have a job. As Michael Gerber said: "The entrepreneur builds an enterprise; the technician builds a job". To really make a difference, we need to open ourselves to the possibility of creating something more. When we take the risk of stepping outside of our comfort zone and pursue our passion, we can build something that lasts.
 
 <!-- </quote> -->
 

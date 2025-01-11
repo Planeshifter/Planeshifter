@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Words have the power to create or destroy relationships. As John Rampton said: "You can say anything to anyone, but how you say it will determine how they will react". Whether we are talking to friends, family or colleagues, it's important to be mindful of how we communicate and to choose our words wisely.
+Achieving success isn't easy, but it is achievable. As the Chinese proverb says, "A journey of a thousand miles begins with a single step." It's important to stay focused on the end goal and taking one step at a time. We can't expect immediate results, but with hard work and dedication, we can get closer to achieving our dreams.
 
 <!-- </quote> -->
 

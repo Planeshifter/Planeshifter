@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Achieving success isn't easy, but it is achievable. As the Chinese proverb says, "A journey of a thousand miles begins with a single step." It's important to stay focused on the end goal and taking one step at a time. We can't expect immediate results, but with hard work and dedication, we can get closer to achieving our dreams.
+What kind of leader accelerates growth? A great one! Or, as John C. Maxwell said, "While a good leader sustains momentum, a great leader increases it." This quote speaks to the importance of strong and effective leadership in any organization. Great leaders can help make their teams more productive, efficient, and successful. The same is true in our personal lives; having the right kind of leader can help us reach our own goals and dreams more quickly.
 
 <!-- </quote> -->
 

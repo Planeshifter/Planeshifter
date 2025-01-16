@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success in business is not easy to achieve. As David Rockefeller said: "Success in business requires training and discipline and hard work." We must be willing to put in the effort and take on the challenge to create something truly impactful. With hard work and dedication, the opportunities are just as great today as ever before.
+Death is a part of life and an inevitable reality that each of us will have to face. As Steve Jobs said, “Remembering you are going to die is the best way I know to avoid the trap of thinking you have something to lose." We should remember that life is short, and make the most of it by living it to the fullest.
 
 <!-- </quote> -->
 

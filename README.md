@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Death is a part of life and an inevitable reality that each of us will have to face. As Steve Jobs said, “Remembering you are going to die is the best way I know to avoid the trap of thinking you have something to lose." We should remember that life is short, and make the most of it by living it to the fullest.
+In difficult times we have to have a special kind of courage to make it through. As Robert Kiyosaki said, “When times are bad is when the real entrepreneurs emerge”. We have to be willing to face the challenges, take risks, and persevere. Those are the qualities of a true entrepreneur.
 
 <!-- </quote> -->
 

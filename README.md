@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-In difficult times we have to have a special kind of courage to make it through. As Robert Kiyosaki said, “When times are bad is when the real entrepreneurs emerge”. We have to be willing to face the challenges, take risks, and persevere. Those are the qualities of a true entrepreneur.
+Reputation is a fragile thing. As Warren Buffett said, “It takes 20 years to build a reputation and five minutes to ruin it.” That is why it is important to think twice before we act. We should be careful not to do things that will damage our reputation, or else all our hard work will be wasted.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-William James once said: "The best use of life is to spend it for something that outlasts it". This is a reminder to focus on pursuits with lasting value instead of chasing fleeting pleasures. We should strive to make an impact that will outlive us instead of living in the moment.
+If you want to understand what your customer really needs, the best way is to ask them. As Lisa Stone said, “Don’t tell. Ask.” By asking your customers what they want and need, you are more likely to offer them a product or service that will meet their needs and make them happy.
 
 <!-- </quote> -->
 

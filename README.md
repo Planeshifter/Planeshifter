@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-If you want to understand what your customer really needs, the best way is to ask them. As Lisa Stone said, “Don’t tell. Ask.” By asking your customers what they want and need, you are more likely to offer them a product or service that will meet their needs and make them happy.
+Taking risks is the only way to achieve success. As Casey Neistat, filmmaker said: “Every time I took these bigger risks, the opportunity for a bigger payout was always there.” We must be brave and go beyond our comfort zone if we truly want to reach our goals.
 
 <!-- </quote> -->
 

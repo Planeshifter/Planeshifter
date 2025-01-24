@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Taking risks is the only way to achieve success. As Casey Neistat, filmmaker said: “Every time I took these bigger risks, the opportunity for a bigger payout was always there.” We must be brave and go beyond our comfort zone if we truly want to reach our goals.
+We all have unique skills and talents. As Albert Einstein said “Everyone is a genius. But if you judge a fish by its ability to climb a tree, it will spend its whole life believing it is stupid.” We should strive to appreciate and nurture our individual gifts instead of expecting them to conform to set standards.
 
 <!-- </quote> -->
 

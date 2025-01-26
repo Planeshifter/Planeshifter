@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-How can you reach success that lasts? Have a clear goal. Or, as Victor Cousins said, "In everything the ends well defined are the secret of durable success." This quote emphasizes the importance of having clear, achievable goals for lasting success. As a personal trainer and self-help guru, I emphasize that defining concrete goals is necessary for success. Setting achievable goals gives us the motivation to strive for our goals, and it also helps us stay focused and on track. Having clear goals also allows us to measure our progress and make necessary adjustments, so that we can stay on course to reach our desired outcomes.
+Success can‘t be faked. As Anthony Volodkin, founder of Hype Machine says: "Be undeniably good. No marketing effort or social media buzzword can be a substitute for that". Only quality work and dedication will lead to success. Anything else is just a waste of time.
 
 <!-- </quote> -->
 

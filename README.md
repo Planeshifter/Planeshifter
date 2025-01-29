@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Having a vision is not enough if we don't take any action. As the Japanese proverb says, “Vision without action is a daydream. Action without vision is a nightmare.” If we don't have a clear plan and direction, our actions will be misguided and we will never reach our goals.
+Having a vision is important, but it's not enough. To make it happen, we must take action. As Vance Hayner wisely said: "The vision must be followed by the venture. It is not enough to stare up the steps – we must step up the stairs." We need to work hard, persist and never give up to achieve our goals.
 
 <!-- </quote> -->
 

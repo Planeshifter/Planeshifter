@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Having a vision is important, but it's not enough. To make it happen, we must take action. As Vance Hayner wisely said: "The vision must be followed by the venture. It is not enough to stare up the steps – we must step up the stairs." We need to work hard, persist and never give up to achieve our goals.
+Don't be afraid to take the first step towards achieving your goals. As Kevin Systrom says: "If you’ve got an idea, start today. There’s no better time than now to get going". Even if you can't start working on your idea full-time, you can always make small progress and start the movement. Every journey begins with a single step.
 
 <!-- </quote> -->
 

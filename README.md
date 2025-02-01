@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What takes more effort to do, great things or commanding them? Commanding them. Or, as Friedrich Nietzsche said, “To do great things is difficult; but to command great things is more difficult.” This emphasizes the challenge of leading, rather than being led, and the importance of taking initiative and demonstrating strong leadership. This quote is important to me, as a personal trainer and self-help guru, because inspiring others to reach their potential requires a great deal of guidance, determination and hard work.
+Can you lead without compromise? Yes. Or, as Woodrow Wilson said, "Leadership does not always wear the harness of compromise." Leadership is about making decisions and standing by them, and that often means not compromising. Compromise is sometimes necessary, but not always. This quote helps to remind us that when it comes to our decisions, we should be brave and decisive, and not be afraid to stand by our convictions. In our daily lives, this quote is important as it shows us that we must have the courage to make our own decisions and not be scared of the consequences.
 
 <!-- </quote> -->
 

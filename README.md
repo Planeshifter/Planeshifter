@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What's the key to success? Knowing something no one else knows. Or, as Aristotle Onassis said, "The secret of success is to know something nobody else knows." This implies the importance of having knowledge or skills that are rare and valuable. This quote is incredibly relevant in today's world, as having that extra knowledge or skill can help you stand out in a competitive job market or lead to success in other areas of life.
+What's the best way to get to happiness? By traveling in a happy manner! Or, as Margaret Lee Runbeck said, "Happiness is not a state to arrive at, but a manner of traveling." This quote encourages us to find joy in our journey and to be mindful of the present moment. This quote relates to our daily life in that it reminds us to live in the moment and appreciate the decisions we make during our journey, which can lead us to a more fulfilling and content life.
 
 <!-- </quote> -->
 

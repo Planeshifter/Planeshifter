@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What's the best way to get to happiness? By traveling in a happy manner! Or, as Margaret Lee Runbeck said, "Happiness is not a state to arrive at, but a manner of traveling." This quote encourages us to find joy in our journey and to be mindful of the present moment. This quote relates to our daily life in that it reminds us to live in the moment and appreciate the decisions we make during our journey, which can lead us to a more fulfilling and content life.
+What is the only way to find true happiness? By realizing that we have achieved something. Or, as Henry Ford said, "There is no happiness except in the realization that we have accomplished something." This quote reminds us to actively pursue our goals and to appreciate the moments when we do accomplish something, as that type of happiness is one of the greatest forms of satisfaction. The quote is important in our lives because it reminds us to take ownership of our lives and to take pride in our accomplishments, which can lead to greater satisfaction and overall happiness.
 
 <!-- </quote> -->
 

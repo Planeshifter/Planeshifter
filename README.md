@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is the only way to find true happiness? By realizing that we have achieved something. Or, as Henry Ford said, "There is no happiness except in the realization that we have accomplished something." This quote reminds us to actively pursue our goals and to appreciate the moments when we do accomplish something, as that type of happiness is one of the greatest forms of satisfaction. The quote is important in our lives because it reminds us to take ownership of our lives and to take pride in our accomplishments, which can lead to greater satisfaction and overall happiness.
+What comes first, commitment or action? Commitment comes first. Or, as Marcia Wieder said, "Commitment leads to action. Action brings your dream closer." This quote encourages us to take responsibility and make a commitment to our goals before we take action. When we make a conscious commitment to our dreams, we are more likely to put in the work and effort it takes to make those dreams come true. This is important to our daily lives because it allows us to create a path to success and keep ourselves motivated.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What's the difference between knowing and overlooking? Knowing is aware and conscious, overlooking is disregarding or ignoring. Or, as William James said, "The art of being wise is knowing what to overlook." This quote means that wisdom is not just about knowing what to pay attention to, but also being able to ignore what is not important or beneficial. In our daily lives, this quote reminds us to choose our battles wisely, and to be careful not to be overwhelmed by the small stuff; it's important to know when it's better to overlook certain situations and move on.
+What is the best way to learn?  Through trial and error. Or, as Thomas Edison said, "I have not failed. I’ve just found 10,000 ways that won’t work." This quote captures the idea that success is often found through experimentation, rather than finding the right answer right away. This is important to our daily lives because we should be open to trying new things and not giving up after a few failed attempts, but instead learning from our mistakes and continuing to search for better solutions.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is the best way to learn?  Through trial and error. Or, as Thomas Edison said, "I have not failed. I’ve just found 10,000 ways that won’t work." This quote captures the idea that success is often found through experimentation, rather than finding the right answer right away. This is important to our daily lives because we should be open to trying new things and not giving up after a few failed attempts, but instead learning from our mistakes and continuing to search for better solutions.
+Tim Westergen, founder of Pandora, is right when he said: "Make your team feel respected, empowered and genuinely excited about the company’s mission". Having a motivated and dedicated team is a key factor to success. It is important to create a positive and encouraging environment where employees can work to the best of their ability and be proud of the work they do.
 
 <!-- </quote> -->
 

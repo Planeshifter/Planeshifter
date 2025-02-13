@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Entrepreneurship is a journey that requires you to take risks that most people won't in order to achieve success. As Anonymous said, "Entrepreneurship is living a few years of your life like most people won't, so that you can spend the rest of your life like most people can't". It is going the extra mile and giving it your all every day to create something amazing.
+David Karp, founder of Tumblr, said it best: “Every feature has some maintenance cost, and having fewer features lets us focus on the ones we care about and make sure they work very well.” This means that quantity isn't as important as quality. We should focus on creating and perfecting the few things that are important, rather than trying to do too much all at once.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-David Karp, founder of Tumblr, said it best: “Every feature has some maintenance cost, and having fewer features lets us focus on the ones we care about and make sure they work very well.” This means that quantity isn't as important as quality. We should focus on creating and perfecting the few things that are important, rather than trying to do too much all at once.
+What is the key to living the life you desire? Confidence. Or, as Henry David Thoreau said, "Go confidently in the direction of your dreams. Live the life you have imagined." This quote encourages us to believe in ourselves and to have the courage to pursue our goals. This has a real-world application in our lives as we often doubt our own abilities and are afraid to take risks. By believing in ourselves and having the confidence to take action, we can reach our goals and live the life we have imagined.
 
 <!-- </quote> -->
 

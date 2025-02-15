@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is the key to living the life you desire? Confidence. Or, as Henry David Thoreau said, "Go confidently in the direction of your dreams. Live the life you have imagined." This quote encourages us to believe in ourselves and to have the courage to pursue our goals. This has a real-world application in our lives as we often doubt our own abilities and are afraid to take risks. By believing in ourselves and having the confidence to take action, we can reach our goals and live the life we have imagined.
+To create a successful business, you need to make sure your product is either better or cheaper than its alternatives. This is the only way to ensure that your business remains viable over time. As Jim Koch, founder of Boston Beer Co., said: “You have a viable business only if your product is either better or cheaper than the alternatives. If it’s not one or the other, you might make some money at first, but it’s not a sustainable business.”
 
 <!-- </quote> -->
 

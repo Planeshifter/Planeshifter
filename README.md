@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-To create a successful business, you need to make sure your product is either better or cheaper than its alternatives. This is the only way to ensure that your business remains viable over time. As Jim Koch, founder of Boston Beer Co., said: “You have a viable business only if your product is either better or cheaper than the alternatives. If it’s not one or the other, you might make some money at first, but it’s not a sustainable business.”
+Sometimes it takes a hard fall to learn a lesson. As the Chinese proverb says: "A fall into a ditch makes you wiser". We may not realize it at the time, but mistakes can actually lead to valuable insights and wisdom. We just have to be willing to look at the situation differently and learn from it.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Sometimes it takes a hard fall to learn a lesson. As the Chinese proverb says: "A fall into a ditch makes you wiser". We may not realize it at the time, but mistakes can actually lead to valuable insights and wisdom. We just have to be willing to look at the situation differently and learn from it.
+Success isn't always about being the best for everyone. According to Ron Shaich, founder and CEO of Panera Bread, “If you can do something to get somebody excited — not everybody — but if you can be the best for somebody, then you can win.” This means that if you focus on being the best for the people who matter, you will be successful.
 
 <!-- </quote> -->
 

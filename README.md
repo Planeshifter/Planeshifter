@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success isn't always about being the best for everyone. According to Ron Shaich, founder and CEO of Panera Bread, “If you can do something to get somebody excited — not everybody — but if you can be the best for somebody, then you can win.” This means that if you focus on being the best for the people who matter, you will be successful.
+Entrepreneurship is a journey that requires you to take risks that most people won't in order to achieve success. As Anonymous said, "Entrepreneurship is living a few years of your life like most people won't, so that you can spend the rest of your life like most people can't". It is going the extra mile and giving it your all every day to create something amazing.
 
 <!-- </quote> -->
 

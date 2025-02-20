@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Don't be afraid to take the first step towards achieving your goals. As Kevin Systrom says: "If you’ve got an idea, start today. There’s no better time than now to get going". Even if you can't start working on your idea full-time, you can always make small progress and start the movement. Every journey begins with a single step.
+It's important to surround yourself with people who have a growth mindset. As Mark Twain said: "Keep away from people who try to belittle your ambitions. Small people always do that, but the really great make you feel that you, too, can become great". A positive, supportive environment is key to achieving success.
 
 <!-- </quote> -->
 

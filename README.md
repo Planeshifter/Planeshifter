@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's important to surround yourself with people who have a growth mindset. As Mark Twain said: "Keep away from people who try to belittle your ambitions. Small people always do that, but the really great make you feel that you, too, can become great". A positive, supportive environment is key to achieving success.
+It‘s never too late to become the best version of yourself. As George Eliot said: “It is never too late to be what you might have been”. We have the power to define our own destiny, regardless of our circumstances or age. We can always be the person we want to be and fulfill our potential in life.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It‘s never too late to become the best version of yourself. As George Eliot said: “It is never too late to be what you might have been”. We have the power to define our own destiny, regardless of our circumstances or age. We can always be the person we want to be and fulfill our potential in life.
+It's easy to come up with ideas, but the hard part is putting them into action. As Guy Kawasaki said: "Ideas are easy. Implementation is hard." We need to go beyond just dreaming and come up with plans to make our dreams come true. Without dedication and strategy, our ideas will remain just that - ideas.
 
 <!-- </quote> -->
 

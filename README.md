@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's easy to come up with ideas, but the hard part is putting them into action. As Guy Kawasaki said: "Ideas are easy. Implementation is hard." We need to go beyond just dreaming and come up with plans to make our dreams come true. Without dedication and strategy, our ideas will remain just that - ideas.
+When pursuing something, we should not be afraid of failure. As Michael Dunlop said, "If you start with nothing and end up with nothing, there’s nothing lost". Even if we don't achieve our goals, we can still find value in the experience and lessons we have learned. Quote: “Change is the only constant in life.” ― Heraclitus
 
 <!-- </quote> -->
 

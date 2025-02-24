@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-When pursuing something, we should not be afraid of failure. As Michael Dunlop said, "If you start with nothing and end up with nothing, there’s nothing lost". Even if we don't achieve our goals, we can still find value in the experience and lessons we have learned. Quote: “Change is the only constant in life.” ― Heraclitus
+Abraham Lincoln said it best: “Example is not the main thing in influencing other people; it’s the only thing.” If we want to be successful in motivating and inspiring others, we need to lead by example. Our actions and words must be consistent, and we must be willing to put in the work to show others what is possible.
 
 <!-- </quote> -->
 

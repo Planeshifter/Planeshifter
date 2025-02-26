@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What comes with more effort? Greater rewards. Or, as Horace Bushnell said, "The more difficulties one has to encounter, within and without, the more significant and the higher in inspiration his life will be." This quote demonstrates the importance of hard work and perseverance, as the more difficult something is, the more rewarding it can be. This is especially relevant to personal trainers and self-help gurus, as the same principles apply to their work: difficult goals are often the most rewarding. With dedication, patience, and grit, any challenge can be conquered and lasting results can be achieved.
+What is the best way to learn?  Through trial and error. Or, as Thomas Edison said, "I have not failed. I’ve just found 10,000 ways that won’t work." This quote captures the idea that success is often found through experimentation, rather than finding the right answer right away. This is important to our daily lives because we should be open to trying new things and not giving up after a few failed attempts, but instead learning from our mistakes and continuing to search for better solutions.
 
 <!-- </quote> -->
 

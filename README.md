@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is the best way to learn?  Through trial and error. Or, as Thomas Edison said, "I have not failed. I’ve just found 10,000 ways that won’t work." This quote captures the idea that success is often found through experimentation, rather than finding the right answer right away. This is important to our daily lives because we should be open to trying new things and not giving up after a few failed attempts, but instead learning from our mistakes and continuing to search for better solutions.
+You may think that taking a risk is not worth it, but that's not true. As Beverly Sills once said: "You may be disappointed if you fail, but you are doomed if you don’t try." Taking risks is a necessary part of life and we can't expect to succeed without taking them.
 
 <!-- </quote> -->
 

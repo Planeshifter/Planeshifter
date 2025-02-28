@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You may think that taking a risk is not worth it, but that's not true. As Beverly Sills once said: "You may be disappointed if you fail, but you are doomed if you don’t try." Taking risks is a necessary part of life and we can't expect to succeed without taking them.
+Leadership is an essential skill in life. As E.M. Kelly said: "The difference between a boss and a leadea boss says, ‘Go!’ -a leader says, ‘Let’s go!’". A leader shows enthusiasm and optimism, and people will follow if they see their leader is willing to take the journey with them.
 
 <!-- </quote> -->
 

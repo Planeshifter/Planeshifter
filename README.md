@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Leadership is an essential skill in life. As E.M. Kelly said: "The difference between a boss and a leadea boss says, ‘Go!’ -a leader says, ‘Let’s go!’". A leader shows enthusiasm and optimism, and people will follow if they see their leader is willing to take the journey with them.
+Failure is an essential part of success. As Jeff Bezos said: "If you want to be inventive, you have to be willing to fail". We can’t be scared of the possibility of failure. It’s only through repeated attempts that we can find our way to the right solution.
 
 <!-- </quote> -->
 

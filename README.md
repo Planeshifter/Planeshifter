@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Failure is an essential part of success. As Jeff Bezos said: "If you want to be inventive, you have to be willing to fail". We can’t be scared of the possibility of failure. It’s only through repeated attempts that we can find our way to the right solution.
+Life is not about reaching the top, but about how you get there. As Yvon Chouinard said, "How you climb a mountain is more important than reaching the top". This can be applied to any situation – it’s our approach and attitude that will ultimately determine our success, not just the end result.
 
 <!-- </quote> -->
 

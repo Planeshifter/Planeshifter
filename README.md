@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is not about reaching the top, but about how you get there. As Yvon Chouinard said, "How you climb a mountain is more important than reaching the top". This can be applied to any situation – it’s our approach and attitude that will ultimately determine our success, not just the end result.
+No matter how good our tools are, it ultimately comes down to the user. As the Chinese Proverb says, “A bad workman blames his tools”. If our work is unsatisfactory, it's not because of the tools we use, but because of our own lack of skill and effort.
 
 <!-- </quote> -->
 

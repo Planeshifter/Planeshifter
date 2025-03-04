@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No matter how good our tools are, it ultimately comes down to the user. As the Chinese Proverb says, “A bad workman blames his tools”. If our work is unsatisfactory, it's not because of the tools we use, but because of our own lack of skill and effort.
+It's hard to believe that only one company holds a monopoly over the popular board game Monopoly. As Steven Wright said, this goes against the spirit of free competition and business. The game is enjoyed around the world and it's unfair that one company controls the market, depriving other companies from having a chance to succeed.
 
 <!-- </quote> -->
 

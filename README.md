@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's hard to believe that only one company holds a monopoly over the popular board game Monopoly. As Steven Wright said, this goes against the spirit of free competition and business. The game is enjoyed around the world and it's unfair that one company controls the market, depriving other companies from having a chance to succeed.
+We can all achieve greatness. As Dr. Napoleon Hill said: "Whatever the mind can conceive and believe, the mind can achieve". It is our beliefs that shape our success, and with the right mindset, we can reach our goals. Having a strong sense of self-belief and faith is essential in order to reach our potential.
 
 <!-- </quote> -->
 

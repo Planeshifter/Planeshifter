@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We can all achieve greatness. As Dr. Napoleon Hill said: "Whatever the mind can conceive and believe, the mind can achieve". It is our beliefs that shape our success, and with the right mindset, we can reach our goals. Having a strong sense of self-belief and faith is essential in order to reach our potential.
+Life is full of risks and opportunities. As Wayne Gretzky said: "You miss 100 percent of the shots you don’t take". We can't be afraid of the unknown or the chance of failure. Taking the plunge can lead to great rewards and lead us to success.
 
 <!-- </quote> -->
 

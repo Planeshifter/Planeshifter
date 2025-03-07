@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is full of risks and opportunities. As Wayne Gretzky said: "You miss 100 percent of the shots you don’t take". We can't be afraid of the unknown or the chance of failure. Taking the plunge can lead to great rewards and lead us to success.
+How do you think of the future? One day at a time. Or, as Albert Einstein said, "I never think of the future - it comes soon enough." This quote is a reminder to focus on the present and the decisions we make today, rather than worrying too much about the future, as it will come soon enough. In our busy lives, it is important to remember to focus on today's actions and choices, as they will shape our tomorrow and our future.
 
 <!-- </quote> -->
 

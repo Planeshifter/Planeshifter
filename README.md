@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-How do you think of the future? One day at a time. Or, as Albert Einstein said, "I never think of the future - it comes soon enough." This quote is a reminder to focus on the present and the decisions we make today, rather than worrying too much about the future, as it will come soon enough. In our busy lives, it is important to remember to focus on today's actions and choices, as they will shape our tomorrow and our future.
+The key to successful living is to think for yourself. As Steve Jobs said: "Don't be trapped by dogma ― which is living with the results of other people's thinking". We should make our own decisions, and not be bounded by the opinions of others. Only then can we live with true freedom and purpose.
 
 <!-- </quote> -->
 

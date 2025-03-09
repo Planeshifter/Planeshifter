@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-The key to successful living is to think for yourself. As Steve Jobs said: "Don't be trapped by dogma ― which is living with the results of other people's thinking". We should make our own decisions, and not be bounded by the opinions of others. Only then can we live with true freedom and purpose.
+Making mistakes is part of life, and it is how we learn and grow. As John C. Maxwell said: "A man must be big enough to admit his mistakes, smart enough to profit from them, and strong enough to correct them." It takes courage to recognize our mistakes and even more courage to accept responsibility and make changes. It is a sign of strength, not weakness.
 
 <!-- </quote> -->
 

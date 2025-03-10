@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Making mistakes is part of life, and it is how we learn and grow. As John C. Maxwell said: "A man must be big enough to admit his mistakes, smart enough to profit from them, and strong enough to correct them." It takes courage to recognize our mistakes and even more courage to accept responsibility and make changes. It is a sign of strength, not weakness.
+How do we find true happiness? By looking within. Or, as Benjamin Franklin said, “Happiness depends more on the inward disposition of mind than on outward circumstances.” This quote stresses the importance of looking within to find true and lasting happiness, not depending on our external environment or situations. This is important to us because it suggests that our emotional wellbeing is in our hands and that we can find joy, no matter the conditions of our lives.
 
 <!-- </quote> -->
 

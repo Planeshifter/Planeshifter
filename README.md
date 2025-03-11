@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-How do we find true happiness? By looking within. Or, as Benjamin Franklin said, “Happiness depends more on the inward disposition of mind than on outward circumstances.” This quote stresses the importance of looking within to find true and lasting happiness, not depending on our external environment or situations. This is important to us because it suggests that our emotional wellbeing is in our hands and that we can find joy, no matter the conditions of our lives.
+Success requires action, not just words. As Andrew Fashion says: "Make it happen now, not tomorrow. Tomorrow is a loser’s excuse." We need to take ownership of our lives and take action to reach our goals. There's no time to wait or procrastinate. Now is the time.
 
 <!-- </quote> -->
 

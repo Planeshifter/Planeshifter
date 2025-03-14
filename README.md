@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-The value of friendships is often measured in the currency of loyalty. As Ted Nicolas said, "Lend your friend $20, if he doesn't pay you back then he's not your friend. Money well spent". It's true that we need to be wary of people who will take advantage of us, but a true friend will always be there when you need them.
+What comes first, commitment or action? Commitment comes first. Or, as Marcia Wieder said, "Commitment leads to action. Action brings your dream closer." This quote encourages us to take responsibility and make a commitment to our goals before we take action. When we make a conscious commitment to our dreams, we are more likely to put in the work and effort it takes to make those dreams come true. This is important to our daily lives because it allows us to create a path to success and keep ourselves motivated.
 
 <!-- </quote> -->
 

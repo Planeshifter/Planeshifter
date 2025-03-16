@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all want to leave a lasting impression. As Larry Page, co-founder of Google, said: "Always deliver more than expected". Strive for excellence and exceed expectations with every task. This will make you stand out from the crowd and ensure that you make your mark.
+You can't expect to be successful if you don't take action. As Johann Wolfgang von Goethe said, "What is not started will never get finished". Taking the first step is essential to achieving anything in life. Don't let the fear of failure hold you back; start now and success will follow.
 
 <!-- </quote> -->
 

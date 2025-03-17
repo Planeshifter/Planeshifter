@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You can't expect to be successful if you don't take action. As Johann Wolfgang von Goethe said, "What is not started will never get finished". Taking the first step is essential to achieving anything in life. Don't let the fear of failure hold you back; start now and success will follow.
+We all want to be surrounded by good people. As Booker T. Washington put it: "It is better to be alone than in bad company." It is important to choose our friends and associates wisely, as the quality of them will have an impact on our lives.
 
 <!-- </quote> -->
 

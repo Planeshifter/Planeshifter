@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all want to be surrounded by good people. As Booker T. Washington put it: "It is better to be alone than in bad company." It is important to choose our friends and associates wisely, as the quality of them will have an impact on our lives.
+Reputation is a fragile thing. As Warren Buffett said, “It takes 20 years to build a reputation and five minutes to ruin it.” That is why it is important to think twice before we act. We should be careful not to do things that will damage our reputation, or else all our hard work will be wasted.
 
 <!-- </quote> -->
 

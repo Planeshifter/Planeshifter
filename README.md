@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Reputation is a fragile thing. As Warren Buffett said, “It takes 20 years to build a reputation and five minutes to ruin it.” That is why it is important to think twice before we act. We should be careful not to do things that will damage our reputation, or else all our hard work will be wasted.
+What must we do to stay on the path of success? Follow our inner voice and remain resolute. Or, as William Thackeray said, "Follow your honest convictions, and stay strong." This quote encourages us to stay true to ourselves and not waver in the face of challenges. In our daily lives, remaining mindful of our own values and convictions can help us make decisions that align with our goals and aspirations.
 
 <!-- </quote> -->
 

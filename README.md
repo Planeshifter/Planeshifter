@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What must we do to stay on the path of success? Follow our inner voice and remain resolute. Or, as William Thackeray said, "Follow your honest convictions, and stay strong." This quote encourages us to stay true to ourselves and not waver in the face of challenges. In our daily lives, remaining mindful of our own values and convictions can help us make decisions that align with our goals and aspirations.
+Don't be afraid to take the first step towards achieving your goals. As Kevin Systrom says: "If you’ve got an idea, start today. There’s no better time than now to get going". Even if you can't start working on your idea full-time, you can always make small progress and start the movement. Every journey begins with a single step.
 
 <!-- </quote> -->
 

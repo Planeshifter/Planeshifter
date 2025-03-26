@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Adversity can make us stronger. As the Chinese proverb says, "The diamond cannot be polished without friction, nor the man perfected without trials." Difficult times help build our resilience and can lead to personal growth. To become the best version of ourselves, we must be willing to face our challenges head on.
+We can all achieve greatness. As Dr. Napoleon Hill said: "Whatever the mind can conceive and believe, the mind can achieve". It is our beliefs that shape our success, and with the right mindset, we can reach our goals. Having a strong sense of self-belief and faith is essential in order to reach our potential.
 
 <!-- </quote> -->
 

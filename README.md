@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Adaptability is key to success. Victoria Ransom, co-founder of Wildfire Interactive, said it best: "Even if you don't have the perfect idea to begin with, you can likely adapt". This is true in almost any endeavor; adjusting our plans and expectations to fit reality is how we make progress.
+Time is of the essence in today's high-paced world. Tamara Steffens said it best: "Assume you have 90 seconds with a new user before they decide to use your app or delete it". This is especially true for mobile apps, where users are often overwhelmed with choices and easily become disinterested. It's essential to make a good first impression and engage users in a short period of time. Every second counts when it comes to user retention and satisfaction.
 
 <!-- </quote> -->
 

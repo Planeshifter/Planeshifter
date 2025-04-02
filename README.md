@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Time is of the essence in today's high-paced world. Tamara Steffens said it best: "Assume you have 90 seconds with a new user before they decide to use your app or delete it". This is especially true for mobile apps, where users are often overwhelmed with choices and easily become disinterested. It's essential to make a good first impression and engage users in a short period of time. Every second counts when it comes to user retention and satisfaction.
+No matter how good our tools are, it ultimately comes down to the user. As the Chinese Proverb says, “A bad workman blames his tools”. If our work is unsatisfactory, it's not because of the tools we use, but because of our own lack of skill and effort.
 
 <!-- </quote> -->
 

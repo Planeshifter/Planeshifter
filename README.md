@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What takes more effort to do, great things or commanding them? Commanding them. Or, as Friedrich Nietzsche said, “To do great things is difficult; but to command great things is more difficult.” This emphasizes the challenge of leading, rather than being led, and the importance of taking initiative and demonstrating strong leadership. This quote is important to me, as a personal trainer and self-help guru, because inspiring others to reach their potential requires a great deal of guidance, determination and hard work.
+Success won't come to you - you need to go out and get it. As Nolan Bushnell said: "The critical ingredient is getting off your butt and doing something". If we proactively take action, take risks and make moves, we can open up opportunities and create our own luck.
 
 <!-- </quote> -->
 

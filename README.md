@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Prosperity is not a temporary thing. As the Chinese proverb says: "If you want one year of prosperity, grow grain. If you want ten years of prosperity, grow trees. If you want one hundred years of prosperity, grow people". True prosperity can only come from investing in our people, and in the generations to come.
+As the old saying goes, "If at first you don't succeed, try, try again." This is the sentiment behind the quote by Reid Hoffman, "Nine out of ten businesses fail; so I came up with a foolproof plan ― create ten businesses." The idea of creating multiple businesses is an excellent one - if one fails, you may still have other ventures to fall back on. With hard work and dedication, the odds of success increase. Quote: “It’s not who you are that holds you back, it’s who you think you’re not.” ― Denis Waitley
 
 <!-- </quote> -->
 

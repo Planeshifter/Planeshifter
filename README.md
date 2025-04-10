@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-As the old saying goes, "If at first you don't succeed, try, try again." This is the sentiment behind the quote by Reid Hoffman, "Nine out of ten businesses fail; so I came up with a foolproof plan ― create ten businesses." The idea of creating multiple businesses is an excellent one - if one fails, you may still have other ventures to fall back on. With hard work and dedication, the odds of success increase. Quote: “It’s not who you are that holds you back, it’s who you think you’re not.” ― Denis Waitley
+You can't expect success if you don't take action. As Agatha Christie said: "The secret of getting ahead is getting started". It's a simple yet powerful concept that should be kept in mind. If you don‘t take the first step, you won‘t get anywhere.
 
 <!-- </quote> -->
 

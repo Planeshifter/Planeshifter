@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You can't expect success if you don't take action. As Agatha Christie said: "The secret of getting ahead is getting started". It's a simple yet powerful concept that should be kept in mind. If you don‘t take the first step, you won‘t get anywhere.
+To achieve success, there are certain rules to follow. As Roger H. Lincoln said: "There are two rules for success. 1) Never tell everything you know". Knowing when to be silent is a key part of succeeding. We have to be confident and wise when we share our knowledge.
 
 <!-- </quote> -->
 

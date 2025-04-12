@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-To achieve success, there are certain rules to follow. As Roger H. Lincoln said: "There are two rules for success. 1) Never tell everything you know". Knowing when to be silent is a key part of succeeding. We have to be confident and wise when we share our knowledge.
+Prosperity is not a temporary thing. As the Chinese proverb says: "If you want one year of prosperity, grow grain. If you want ten years of prosperity, grow trees. If you want one hundred years of prosperity, grow people". True prosperity can only come from investing in our people, and in the generations to come.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Prosperity is not a temporary thing. As the Chinese proverb says: "If you want one year of prosperity, grow grain. If you want ten years of prosperity, grow trees. If you want one hundred years of prosperity, grow people". True prosperity can only come from investing in our people, and in the generations to come.
+You have the power to choose your own destiny. As the Hasidic Proverb says, “Everyone should carefully observe which way his heart draws him, and then choose that way with all his strength.” Following your heart and trusting your intuition will guide you to the best path for you.
 
 <!-- </quote> -->
 

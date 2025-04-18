@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What takes more effort to do, great things or commanding them? Commanding them. Or, as Friedrich Nietzsche said, “To do great things is difficult; but to command great things is more difficult.” This emphasizes the challenge of leading, rather than being led, and the importance of taking initiative and demonstrating strong leadership. This quote is important to me, as a personal trainer and self-help guru, because inspiring others to reach their potential requires a great deal of guidance, determination and hard work.
+What is entrepreneurship? It is a practice. Or, as Peter Drucker said, "Entrepreneurship is neither a science nor an art. It is a practice." This quote encourages us to focus on the doing—that is, putting into practice the things we learn, instead of just studying them. Practicing entrepreneurship is key in order to catalyze growth and find success. This quote is important to me as a personal trainer and self-help guru because it emphasizes the importance of putting into practice the advice and information I provide to those I work with, rather than simply teaching them. This helps ensure that my clients are able to use the knowledge I give them to become successful.
 
 <!-- </quote> -->
 

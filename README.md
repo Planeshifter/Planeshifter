@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Tom Kelley said it best: "Fail often so you can succeed sooner". Trying, failing and trying again is a successful way to reach your goals. It's important to remember that mistakes are part of the learning process and will help you find out what works and what doesn't. By failing often, you'll gain important insights and be able to make adjustments to achieve success.
+Don't be afraid to take the first step towards achieving your goals. As Kevin Systrom says: "If you’ve got an idea, start today. There’s no better time than now to get going". Even if you can't start working on your idea full-time, you can always make small progress and start the movement. Every journey begins with a single step.
 
 <!-- </quote> -->
 

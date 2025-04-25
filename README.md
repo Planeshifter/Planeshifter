@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Failure is inevitable on the road to success. As Napoleon Hill said, “most great people have attained their greatest success just one step beyond their greatest failure.” This means that we should not fear or be discouraged by failure, but instead continue to press on and learn from our mistakes.
+When it comes to making decisions, it's important to recognize that no one is entirely right or wrong. As Bertrand Russell said: "The whole problem with the world is that fools and fanatics are always so certain of themselves, but wiser people so full of doubts." We need to be aware of our own biases and be willing to listen to other perspectives so that we can gain a better understanding.
 
 <!-- </quote> -->
 

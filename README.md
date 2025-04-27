@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is a journey, not a destination. As Bill Gates said: "It’s fine to celebrate success but it is more important to heed the lessons of failure". We must all learn from our mistakes, so that we can continue to grow and reach our goals. Failure is a part of life, but it should never stop us from trying again.
+The value of friendships is often measured in the currency of loyalty. As Ted Nicolas said, "Lend your friend $20, if he doesn't pay you back then he's not your friend. Money well spent". It's true that we need to be wary of people who will take advantage of us, but a true friend will always be there when you need them.
 
 <!-- </quote> -->
 

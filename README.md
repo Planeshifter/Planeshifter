@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Adversity can make us stronger. As the Chinese proverb says, "The diamond cannot be polished without friction, nor the man perfected without trials." Difficult times help build our resilience and can lead to personal growth. To become the best version of ourselves, we must be willing to face our challenges head on.
+It takes time and effort to get to where we want to be. As the Chinese proverb says, "A jade stone is useless before it is processed; a man is good-for-nothing until he is educated". Education is the key to unlocking our potential and achieving our goals. We must be open to learning, growing and developing our skills if we want to make something of ourselves.
 
 <!-- </quote> -->
 

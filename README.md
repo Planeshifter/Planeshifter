@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-How can hard work turn solutions into reality? By taking the necessary steps to make it happen. Or, as Ullery said, "Careful thinking and hard work will solve nearly all your problems. Try and see for yourself." This quote speaks to the power of taking action and persevering in order to achieve success. It is an essential reminder that often times our problems can be solved if we are willing to put in the hard work and effort. It's an important lesson that it is often the effort we put in that makes the difference between success and failure.
+Success is often a matter of timing and discretion. Chris Dixon, co-founder of Hunch, said: "Get big quietly, so you don’t tip off potential competitors". Taking a slow and steady approach to growth is key to staying ahead in the game and avoiding unwanted attention.
 
 <!-- </quote> -->
 

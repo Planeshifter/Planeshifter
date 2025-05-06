@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is about more than just making money. As Winston Churchill said, "We make a living by what we get, but we make a life by what we give." By making a difference in someone else's life or by helping out in our community, we can create a meaningful, impactful life.
+Success doesn't come easy. As Thomas Edison said: "I have not failed. I've just found 10,000 ways that won't work". This quote reminds us that we should never give up no matter how many times we fail. Mistakes can be valuable learning experiences that help us to find the right path towards our goals.
 
 <!-- </quote> -->
 

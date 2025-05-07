@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success doesn't come easy. As Thomas Edison said: "I have not failed. I've just found 10,000 ways that won't work". This quote reminds us that we should never give up no matter how many times we fail. Mistakes can be valuable learning experiences that help us to find the right path towards our goals.
+It's better to take a risk than to ask for permission. As Grace Hopper said, "It’s easier to ask forgiveness than it is to get permission". Taking calculated risks can open the door to opportunities that would otherwise be unavailable. However, you must make sure you are willing to be accountable for the consequences of your decisions.
 
 <!-- </quote> -->
 

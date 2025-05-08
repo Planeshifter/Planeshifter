@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's better to take a risk than to ask for permission. As Grace Hopper said, "It’s easier to ask forgiveness than it is to get permission". Taking calculated risks can open the door to opportunities that would otherwise be unavailable. However, you must make sure you are willing to be accountable for the consequences of your decisions.
+What does it take to be wise? Hard work and dedication. Or, as Seneca said, "No man was ever wise by chance." This quote encourages us to take ownership of our development, and to recognize that wisdom takes effort. This quote is relevant to our daily lives because it reminds us that we must be willing to put in the effort if we want to realize our fullest potential.
 
 <!-- </quote> -->
 

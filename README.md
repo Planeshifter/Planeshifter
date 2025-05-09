@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What does it take to be wise? Hard work and dedication. Or, as Seneca said, "No man was ever wise by chance." This quote encourages us to take ownership of our development, and to recognize that wisdom takes effort. This quote is relevant to our daily lives because it reminds us that we must be willing to put in the effort if we want to realize our fullest potential.
+Taking risks is the only way to achieve success. As Casey Neistat, filmmaker said: “Every time I took these bigger risks, the opportunity for a bigger payout was always there.” We must be brave and go beyond our comfort zone if we truly want to reach our goals.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Taking risks is the only way to achieve success. As Casey Neistat, filmmaker said: “Every time I took these bigger risks, the opportunity for a bigger payout was always there.” We must be brave and go beyond our comfort zone if we truly want to reach our goals.
+You have the power to create your own future. As Farrah Gray said: "Build your own dreams, or someone else will hire you to build theirs." Don't be afraid to take risks and pursue your ambitions. With hard work and dedication, you can reach your goals and live the life you want.
 
 <!-- </quote> -->
 

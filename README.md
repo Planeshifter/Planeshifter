@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You have the power to create your own future. As Farrah Gray said: "Build your own dreams, or someone else will hire you to build theirs." Don't be afraid to take risks and pursue your ambitions. With hard work and dedication, you can reach your goals and live the life you want.
+Life is not just about material gain and success. Quoted by Tony Hsieh on Retireat21, "To never forget that the most important thing in life is the quality of life we lead." We should never lose sight of what makes life meaningful. Enjoying time with friends and family, living with purpose, and contributing to our communities are the things that will make us truly happy and fulfilled.
 
 <!-- </quote> -->
 

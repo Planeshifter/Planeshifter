@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Failure is not the end. As Thomas Edison said, "If I find 10,000 ways something won’t work, I haven’t failed. I am not discouraged, because every wrong attempt discarded is often a step forward." We can learn from our mistakes and use the knowledge to take one step closer to success.
+What is the secret to life? Finding purpose. Or, as C. H. Parkhurst said, "Purpose is what gives life a meaning." The quote suggests that having purpose in life is vital for a meaningful existence. It is important to find that purpose in our lives because it gives us direction, motivation, and overall satisfaction. Having purpose keeps us focused on our goals, drives us to continue striving for better, and allows us to experience a sense of contentment when we reach our desired outcomes.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is the secret to life? Finding purpose. Or, as C. H. Parkhurst said, "Purpose is what gives life a meaning." The quote suggests that having purpose in life is vital for a meaningful existence. It is important to find that purpose in our lives because it gives us direction, motivation, and overall satisfaction. Having purpose keeps us focused on our goals, drives us to continue striving for better, and allows us to experience a sense of contentment when we reach our desired outcomes.
+Sometimes, the biggest success comes after the biggest failure. As Napoleon Hill said: "Most great people have attained their greatest success just one step beyond their greatest failure". This means that failure is often a part of the process in achieving success, and we should use it as a learning opportunity to keep moving forward.
 
 <!-- </quote> -->
 

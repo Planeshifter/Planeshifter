@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is full of tough decisions, and as Timothy Ferriss advises, sometimes it's best to take the plunge and make a move, even if the timing isn't perfect. He said, "For all of the most important things, the timing always sucks. Waiting for a good time to quit your job? The stars will never align and the traffic lights of life will never all be green at the same time. The universe doesn’t conspire against you, but it doesn’t go out of its way to line up the pins either." Don't be tempted to procrastinate, if something is important to you, take the plunge and start now.
+What must we do to stay on the path of success? Follow our inner voice and remain resolute. Or, as William Thackeray said, "Follow your honest convictions, and stay strong." This quote encourages us to stay true to ourselves and not waver in the face of challenges. In our daily lives, remaining mindful of our own values and convictions can help us make decisions that align with our goals and aspirations.
 
 <!-- </quote> -->
 

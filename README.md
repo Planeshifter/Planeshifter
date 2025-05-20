@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What must we do to stay on the path of success? Follow our inner voice and remain resolute. Or, as William Thackeray said, "Follow your honest convictions, and stay strong." This quote encourages us to stay true to ourselves and not waver in the face of challenges. In our daily lives, remaining mindful of our own values and convictions can help us make decisions that align with our goals and aspirations.
+When it comes to friendships, money can be an important test of loyalty. As Ted Nicolas said: "Lend your friend $20. If he doesn’t pay you back then he’s not your friend. Money well spent." It's a simple yet effective way to determine the true character of someone.
 
 <!-- </quote> -->
 

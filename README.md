@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Leaders don't rely on coercion to get the job done. As Dwight D. Eisenhower said: "Leadership is the art of getting someone else to do something you want done because he wants to do it". This requires understanding people's motivations, inspiring and connecting with them, and creating an environment of trust and open communication.
+You can't just be a businessman, you have to be a business. This is what Jay-Z means when he said "I'm not a businessman. I'm a business, man.". To succeed, you have to think outside the box, challenge the status quo, and create something that will last beyond your lifetime. It's not enough to be a businessman; you have to have the vision and the drive of a business.
 
 <!-- </quote> -->
 

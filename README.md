@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You can't just be a businessman, you have to be a business. This is what Jay-Z means when he said "I'm not a businessman. I'm a business, man.". To succeed, you have to think outside the box, challenge the status quo, and create something that will last beyond your lifetime. It's not enough to be a businessman; you have to have the vision and the drive of a business.
+What do wise men and fools have in common? They both learn from experience. Or, as a Latin proverb said, “A wise man learns by the mistakes of others, a fool by his own.” This proverb is reminding us that it is often wiser to learn from the mistakes of others rather than making our own. This is important to you because it is often a less costly option to learn from the mistakes of those around you instead of having to face the consequences of making your own mistakes.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What do wise men and fools have in common? They both learn from experience. Or, as a Latin proverb said, “A wise man learns by the mistakes of others, a fool by his own.” This proverb is reminding us that it is often wiser to learn from the mistakes of others rather than making our own. This is important to you because it is often a less costly option to learn from the mistakes of those around you instead of having to face the consequences of making your own mistakes.
+Being an entrepreneur is not an easy feat. As Ted Turner said, "My son is now an 'entrepreneur'. That's what you're called when you don't have a job". It might be tough, but it can be rewarding. It requires hard work, dedication, and the ability to take risks.
 
 <!-- </quote> -->
 

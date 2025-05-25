@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Being an entrepreneur is not an easy feat. As Ted Turner said, "My son is now an 'entrepreneur'. That's what you're called when you don't have a job". It might be tough, but it can be rewarding. It requires hard work, dedication, and the ability to take risks.
+Education is key to success, but it doesn't have to be a formal process. As Mitch Hedberg said: “I didn’t go to college, but if I did, I would’ve taken all my tests at a restaurant, ’cause ‘The customer is always right.’” This quote teaches us that we can gain knowledge from any environment, as long as we approach it with an open mind and a willingness to learn.
 
 <!-- </quote> -->
 

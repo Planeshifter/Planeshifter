@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Education is key to success, but it doesn't have to be a formal process. As Mitch Hedberg said: “I didn’t go to college, but if I did, I would’ve taken all my tests at a restaurant, ’cause ‘The customer is always right.’” This quote teaches us that we can gain knowledge from any environment, as long as we approach it with an open mind and a willingness to learn.
+We all have dreams and ambitions but ultimately, it's the small ideas that can lead to the biggest successes. As Matt Mullenweg, founder of Automattic said: “I don’t have big ideas. I sometimes have small ideas, which seem to work out.” It's not always the grand plans that produce the most impressive results but instead, the small, achievable goals executed with consistency and dedication.
 
 <!-- </quote> -->
 

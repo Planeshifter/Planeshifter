@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Starting a business is no small feat and requires a great deal of passion and dedication. As Dave Thomas, founder of Wendy’s, said: "What do you need to start a business? Three simple things: know your product better than anyone, know your customer, and have a burning desire to succeed." Knowing and understanding what you’re selling, as well as who you’re selling it to, is essential to any successful business. Having the drive to succeed is the boost of motivation that will help get you to the finish line.
+What comes after a finish line? Another starting line! Or, as John Dewey said, "Arriving at one goal is the starting point to another." This means that reaching a goal is not the end, but the beginning of something new. This quote is relevant to my daily life because it reminds me to keep challenging myself and striving for further achievement.
 
 <!-- </quote> -->
 

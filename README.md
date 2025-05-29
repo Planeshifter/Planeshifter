@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What comes after a finish line? Another starting line! Or, as John Dewey said, "Arriving at one goal is the starting point to another." This means that reaching a goal is not the end, but the beginning of something new. This quote is relevant to my daily life because it reminds me to keep challenging myself and striving for further achievement.
+We can't let safety and comfort keep us from taking risks and achieving our dreams. As William Shedd said: "A ship in harbor is safe. But that’s now what ships are built for". We can't let our fear of failure hold us back from pursing our goals. Instead, we must take bold steps forward with confidence and faith.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We can't let safety and comfort keep us from taking risks and achieving our dreams. As William Shedd said: "A ship in harbor is safe. But that’s now what ships are built for". We can't let our fear of failure hold us back from pursing our goals. Instead, we must take bold steps forward with confidence and faith.
+Money isn't everything, but it is an important factor when it comes to achieving success. As Michael Dunlop said: "I treat business a bit like a computer game. I count money as points. I'm doing really well: making lots of money and lots of points." This mindset is key to staying motivated and building a successful business.
 
 <!-- </quote> -->
 

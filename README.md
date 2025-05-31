@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Money isn't everything, but it is an important factor when it comes to achieving success. As Michael Dunlop said: "I treat business a bit like a computer game. I count money as points. I'm doing really well: making lots of money and lots of points." This mindset is key to staying motivated and building a successful business.
+Life is full of risks and taking risks means making mistakes. As Jeff Clavier said: "If we don’t allow ourselves to make mistakes, we will never invest in things that are radical." We must embrace the fear of failure in order to achieve success. Taking risks can be scary but can also be rewarding.
 
 <!-- </quote> -->
 

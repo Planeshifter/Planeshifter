@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is worse than failing? Never trying to succeed. Or, as Theodore Roosevelt said, "It is hard to fail, but it is worse never to have tried to succeed." This quote emphasizes the importance of taking risks and having the courage to try something new. By pushing ourselves out of our comfort zones, we can open up the possibility of achieving great things. In our daily lives, striving to reach our goals and taking risks can lead to growth and success.
+As George Burns said, it's better to fail at something we love than to be successful at something we dislike. Success without passion and joy is hollow. Life is too short to waste it on something we don't enjoy. It's important to find something we enjoy, and be passionate and determined to work hard to succeed.
 
 <!-- </quote> -->
 

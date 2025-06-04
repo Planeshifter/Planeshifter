@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is the most important goal in life? To get ahead of ourselves. Or, as E. Joseph Cossman said, "Our business in life is not to get ahead of others, but to get ahead of ourselves." This quote encourages us to push our own boundaries instead of comparing ourselves to others. By focusing on our own success, rather than trying to beat others, we can be more productive and move forward in our goals. This quote is important to us because it reminds us that our own progress is the key to future success.
+When is the best time to launch a product? Before it's perfect. Or, as Reid Hoffman said, "If you're not embarrassed by the first version of your product, you've launched too late." This quote reflects the idea that launching quickly and iterating along the way will lead to better results than waiting until the product is perfect. It is important to remember this advice in our daily lives as we often become too caught up in perfectionism and procrastination, which can lead to missed opportunities and lack of progress.
 
 <!-- </quote> -->
 

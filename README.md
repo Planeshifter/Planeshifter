@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-When is the best time to launch a product? Before it's perfect. Or, as Reid Hoffman said, "If you're not embarrassed by the first version of your product, you've launched too late." This quote reflects the idea that launching quickly and iterating along the way will lead to better results than waiting until the product is perfect. It is important to remember this advice in our daily lives as we often become too caught up in perfectionism and procrastination, which can lead to missed opportunities and lack of progress.
+Mark Zuckerberg is a modern example of how important it is to learn how to program. He advises us to learn and develop our skills in this field, as it can bring great success and opportunities. As he says: "My number one piece of advice is: you should learn how to program". With the right knowledge and techniques, we can unlock new possibilities.
 
 <!-- </quote> -->
 

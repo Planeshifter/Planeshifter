@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Why is a leader only as strong as their team? Because a leader's power relies on their team's strength. Or, as General Douglas MacArthur said, "A general is just as good or just as bad as the troops under his command make him." This quote emphasizes the importance of team strength and cooperation, as a leader's success depends on the effectiveness of the team they are leading. This is an important reminder to stay humble and to recognize the importance of working together, as individual success is only achieved through collective effort.
+We all have dreams and aspirations, but achieving them takes hard work and dedication. As Ryan Allis said, "Have the end in mind and every day make sure your working towards it". This means that we must focus on our goals and put in the effort each day to move closer to them. Taking consistent action is the only way to make your dreams come true.
 
 <!-- </quote> -->
 

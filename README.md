@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all have dreams and aspirations, but achieving them takes hard work and dedication. As Ryan Allis said, "Have the end in mind and every day make sure your working towards it". This means that we must focus on our goals and put in the effort each day to move closer to them. Taking consistent action is the only way to make your dreams come true.
+We all want to enjoy our lives and find a job where we can be passionate about. As Confucius said: "Find a job you love and you'll never work a day in your life". This means that if we find a job that we love and are passionate about, then every day will be an enjoyable experience.
 
 <!-- </quote> -->
 

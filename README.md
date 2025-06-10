@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all want to enjoy our lives and find a job where we can be passionate about. As Confucius said: "Find a job you love and you'll never work a day in your life". This means that if we find a job that we love and are passionate about, then every day will be an enjoyable experience.
+When is the best time to act? When the time is right. Or, as Andrew Jackson said, "Take time to deliberate; but when the time for action arrives, stop thinking and go in." This quote means that it is important to take time for careful consideration of a situation before making a decision, but when the time for action has come, it is best to stop worrying and move forward with confidence. This quote is important to me because it helps to remind me to weigh the pros and cons of any decision before taking action, but also to trust my instincts and act with purpose when the time is right.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-When is the best time to act? When the time is right. Or, as Andrew Jackson said, "Take time to deliberate; but when the time for action arrives, stop thinking and go in." This quote means that it is important to take time for careful consideration of a situation before making a decision, but when the time for action has come, it is best to stop worrying and move forward with confidence. This quote is important to me because it helps to remind me to weigh the pros and cons of any decision before taking action, but also to trust my instincts and act with purpose when the time is right.
+If you want to build a successful business, you need to be smart with your hiring. As Peter Berg, founder of October Three, said: "Be really picky with your hiring, and hire the absolute best people you possibly can". Your team is what will determine the success of your business, so it's important to take your time to find the right people.
 
 <!-- </quote> -->
 

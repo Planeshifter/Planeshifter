@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-If you want to build a successful business, you need to be smart with your hiring. As Peter Berg, founder of October Three, said: "Be really picky with your hiring, and hire the absolute best people you possibly can". Your team is what will determine the success of your business, so it's important to take your time to find the right people.
+What must we do to stay on the path of success? Follow our inner voice and remain resolute. Or, as William Thackeray said, "Follow your honest convictions, and stay strong." This quote encourages us to stay true to ourselves and not waver in the face of challenges. In our daily lives, remaining mindful of our own values and convictions can help us make decisions that align with our goals and aspirations.
 
 <!-- </quote> -->
 

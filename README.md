@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What must we do to stay on the path of success? Follow our inner voice and remain resolute. Or, as William Thackeray said, "Follow your honest convictions, and stay strong." This quote encourages us to stay true to ourselves and not waver in the face of challenges. In our daily lives, remaining mindful of our own values and convictions can help us make decisions that align with our goals and aspirations.
+The best way to become the person you want to be is to surround yourself with the people you want to emulate. As Reid Hoffman said: "The fastest way to change yourself is to hang out with people who are already the way you want to be." By surrounding ourselves with people who have the qualities we want, we can gain the inspiration, knowledge, and support we need to reach our goals.
 
 <!-- </quote> -->
 

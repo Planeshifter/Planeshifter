@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-The best way to become the person you want to be is to surround yourself with the people you want to emulate. As Reid Hoffman said: "The fastest way to change yourself is to hang out with people who are already the way you want to be." By surrounding ourselves with people who have the qualities we want, we can gain the inspiration, knowledge, and support we need to reach our goals.
+What is the key to living the life you desire? Confidence. Or, as Henry David Thoreau said, "Go confidently in the direction of your dreams. Live the life you have imagined." This quote encourages us to believe in ourselves and to have the courage to pursue our goals. This has a real-world application in our lives as we often doubt our own abilities and are afraid to take risks. By believing in ourselves and having the confidence to take action, we can reach our goals and live the life we have imagined.
 
 <!-- </quote> -->
 

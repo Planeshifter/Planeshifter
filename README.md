@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is the key to living the life you desire? Confidence. Or, as Henry David Thoreau said, "Go confidently in the direction of your dreams. Live the life you have imagined." This quote encourages us to believe in ourselves and to have the courage to pursue our goals. This has a real-world application in our lives as we often doubt our own abilities and are afraid to take risks. By believing in ourselves and having the confidence to take action, we can reach our goals and live the life we have imagined.
+What does the changing of the seasons bring? Change and acceptance. Or, as Henry David Thoreau said, "Live in each season as it passes; breathe the air, drink the drink, taste the fruit, and resign yourself to the influences of each." This quote encourages us to live in the present moment, to accept the change that each season brings, and to make the most of the experiences it has to offer. This is an important reminder in our lives, as we can often become overwhelmed by the increasing demands of daily life and forget to take time to appreciate the beauty of each new season.
 
 <!-- </quote> -->
 

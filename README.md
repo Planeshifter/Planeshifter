@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life can be full of challenges, but it's up to us how we choose to face them. As Winston Churchill said: "A pessimist sees the difficulty in every opportunity; an optimist sees the opportunity in every difficulty". As challenging as life can be, we can find the silver lining and use it to our advantage.
+We live in a world of endless opportunities, but it's important to remember that we should not take on too much. As the German Proverb says: “He who begins many things finishes but few”. It is important to focus on our goals and limit distractions so that we can achieve success.
 
 <!-- </quote> -->
 

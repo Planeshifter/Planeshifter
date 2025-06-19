@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We live in a world of endless opportunities, but it's important to remember that we should not take on too much. As the German Proverb says: “He who begins many things finishes but few”. It is important to focus on our goals and limit distractions so that we can achieve success.
+Life can be full of surprises and unexpected turns. As Les Dawson said, “I used to sell furniture for a living. The trouble was, it was my own.” Despite our best efforts, sometimes things don't go to plan and we have to find a new way to move forward. This can be a challenging journey, but it can also be a valuable learning experience.
 
 <!-- </quote> -->
 

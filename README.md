@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life can be full of surprises and unexpected turns. As Les Dawson said, “I used to sell furniture for a living. The trouble was, it was my own.” Despite our best efforts, sometimes things don't go to plan and we have to find a new way to move forward. This can be a challenging journey, but it can also be a valuable learning experience.
+Being spineless is not a quality to be admired. As Stanislaw Lem said, "Cannibals prefer those who have no spines." We should never sacrifice our beliefs and principles in order to get ahead. Standing up for what we believe in is essential to leading a fulfilling and successful life.
 
 <!-- </quote> -->
 

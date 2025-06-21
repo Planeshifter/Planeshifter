@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Being spineless is not a quality to be admired. As Stanislaw Lem said, "Cannibals prefer those who have no spines." We should never sacrifice our beliefs and principles in order to get ahead. Standing up for what we believe in is essential to leading a fulfilling and successful life.
+Dreams can only come true if we are willing to put in the necessary effort. As Donald Trump said: "I wasn't satisfied just to earn a good living. I was looking to make a statement." It takes dedication, resilience and dedication to make those dreams a reality.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Dreams can only come true if we are willing to put in the necessary effort. As Donald Trump said: "I wasn't satisfied just to earn a good living. I was looking to make a statement." It takes dedication, resilience and dedication to make those dreams a reality.
+Life can be full of surprises and unexpected turns. As Les Dawson said, “I used to sell furniture for a living. The trouble was, it was my own.” Despite our best efforts, sometimes things don't go to plan and we have to find a new way to move forward. This can be a challenging journey, but it can also be a valuable learning experience.
 
 <!-- </quote> -->
 

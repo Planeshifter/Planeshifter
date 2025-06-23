@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life can be full of surprises and unexpected turns. As Les Dawson said, “I used to sell furniture for a living. The trouble was, it was my own.” Despite our best efforts, sometimes things don't go to plan and we have to find a new way to move forward. This can be a challenging journey, but it can also be a valuable learning experience.
+To create a successful business, you need to make sure your product is either better or cheaper than its alternatives. This is the only way to ensure that your business remains viable over time. As Jim Koch, founder of Boston Beer Co., said: “You have a viable business only if your product is either better or cheaper than the alternatives. If it’s not one or the other, you might make some money at first, but it’s not a sustainable business.”
 
 <!-- </quote> -->
 

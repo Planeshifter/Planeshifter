@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-To create a successful business, you need to make sure your product is either better or cheaper than its alternatives. This is the only way to ensure that your business remains viable over time. As Jim Koch, founder of Boston Beer Co., said: “You have a viable business only if your product is either better or cheaper than the alternatives. If it’s not one or the other, you might make some money at first, but it’s not a sustainable business.”
+What is the most important goal in life? To get ahead of ourselves. Or, as E. Joseph Cossman said, "Our business in life is not to get ahead of others, but to get ahead of ourselves." This quote encourages us to push our own boundaries instead of comparing ourselves to others. By focusing on our own success, rather than trying to beat others, we can be more productive and move forward in our goals. This quote is important to us because it reminds us that our own progress is the key to future success.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is the most important goal in life? To get ahead of ourselves. Or, as E. Joseph Cossman said, "Our business in life is not to get ahead of others, but to get ahead of ourselves." This quote encourages us to push our own boundaries instead of comparing ourselves to others. By focusing on our own success, rather than trying to beat others, we can be more productive and move forward in our goals. This quote is important to us because it reminds us that our own progress is the key to future success.
+We live in a world of endless opportunities, but it's important to remember that we should not take on too much. As the German Proverb says: “He who begins many things finishes but few”. It is important to focus on our goals and limit distractions so that we can achieve success.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We live in a world of endless opportunities, but it's important to remember that we should not take on too much. As the German Proverb says: “He who begins many things finishes but few”. It is important to focus on our goals and limit distractions so that we can achieve success.
+It's better to take a risk than to ask for permission. As Grace Hopper said, "It’s easier to ask forgiveness than it is to get permission". Taking calculated risks can open the door to opportunities that would otherwise be unavailable. However, you must make sure you are willing to be accountable for the consequences of your decisions.
 
 <!-- </quote> -->
 

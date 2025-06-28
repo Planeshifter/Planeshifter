@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is the best way to learn?  Through trial and error. Or, as Thomas Edison said, "I have not failed. I’ve just found 10,000 ways that won’t work." This quote captures the idea that success is often found through experimentation, rather than finding the right answer right away. This is important to our daily lives because we should be open to trying new things and not giving up after a few failed attempts, but instead learning from our mistakes and continuing to search for better solutions.
+Complaints don't have to be seen as a sign of failure. As Zig Ziglar says: "Statistics suggest that when customers complain, business owners and managers ought to get excited about it. The complaining customer represents a huge opportunity for more business." Complaints provide us with valuable insights, and if we can address the issues and make things right, the customer may even become a loyal advocate for our business. Quote: “If you can dream it, you can do it.” ― Walt Disney
 
 <!-- </quote> -->
 

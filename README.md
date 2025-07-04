@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Taking risks is part of being an entrepreneur. As Roy Ash once said, “An entrepreneur tends to bite off a little more than he can chew hoping he’ll quickly learn how to chew it.” Though it can be daunting to take on a challenge that seems too big to handle, it’s important to remember that you have the potential to achieve it.
+Success is often a result of hard work and determination. As Zig Ziglar said: "One can get anything if he is willing to help enough others get what they want." We can't expect to achieve our goals if we don't first contribute to the success of others. By taking the time to help and support others, we create an environment of collaboration and cooperation that ultimately benefits us all.
 
 <!-- </quote> -->
 

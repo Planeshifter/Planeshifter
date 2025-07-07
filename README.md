@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Our potential is limitless. As Dr. Napoleon Hill said, “Whatever the mind can conceive and believe, the mind can achieve.” By believing in ourselves and our abilities, we can reach great heights of success and make our dreams a reality. We have the power within us to make things happen.
+Failure isn’t an option - as Emil Motycka said: "The biggest failure you can have in life is not trying at all." We must push ourselves and take risks if we want to succeed. The only failure is not trying, for that takes away any chance of growth and success.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Failure isn’t an option - as Emil Motycka said: "The biggest failure you can have in life is not trying at all." We must push ourselves and take risks if we want to succeed. The only failure is not trying, for that takes away any chance of growth and success.
+Sometimes we can't undo the opportunities missed in the past. As the Chinese proverb states: "The best time to plant a tree is twenty years ago. The second best time is now." We must make the most of our current situation and take advantage of the opportunities in front of us.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-If you want to make sure your business succeeds, follow Garrett Camp's advice and stay self-funded as long as possible. When you're self-funded, you're in control and don't have to worry about external investors or venture capitalists influencing your decisions. That way, you can build your business by sticking to your own vision and mission.
+What is worse than failing? Never trying to succeed. Or, as Theodore Roosevelt said, "It is hard to fail, but it is worse never to have tried to succeed." This quote emphasizes the importance of taking risks and having the courage to try something new. By pushing ourselves out of our comfort zones, we can open up the possibility of achieving great things. In our daily lives, striving to reach our goals and taking risks can lead to growth and success.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is worse than failing? Never trying to succeed. Or, as Theodore Roosevelt said, "It is hard to fail, but it is worse never to have tried to succeed." This quote emphasizes the importance of taking risks and having the courage to try something new. By pushing ourselves out of our comfort zones, we can open up the possibility of achieving great things. In our daily lives, striving to reach our goals and taking risks can lead to growth and success.
+Thomas Alva Edison is an epitome of determination and resilience. He said, “I have not failed. I've just found 10,000 ways that won't work.” To him, failure was just another step closer to success. He never gave up and kept trying until he achieved what he wanted. This inspiring quote shows that if you strive for success and never give up, you can eventually reach your goals.
 
 <!-- </quote> -->
 

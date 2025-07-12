@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Thomas Alva Edison is an epitome of determination and resilience. He said, “I have not failed. I've just found 10,000 ways that won't work.” To him, failure was just another step closer to success. He never gave up and kept trying until he achieved what he wanted. This inspiring quote shows that if you strive for success and never give up, you can eventually reach your goals.
+You reap what you sow. As the Chinese proverb says: “If you pay peanuts, you get monkeys.” If you expect quality work and results, you must be willing to invest in the right people and resources. You can’t expect exceptional performance from those who are not properly rewarded.
 
 <!-- </quote> -->
 

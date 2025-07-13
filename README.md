@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You reap what you sow. As the Chinese proverb says: “If you pay peanuts, you get monkeys.” If you expect quality work and results, you must be willing to invest in the right people and resources. You can’t expect exceptional performance from those who are not properly rewarded.
+When is the best time to launch a product? Before it's perfect. Or, as Reid Hoffman said, "If you're not embarrassed by the first version of your product, you've launched too late." This quote reflects the idea that launching quickly and iterating along the way will lead to better results than waiting until the product is perfect. It is important to remember this advice in our daily lives as we often become too caught up in perfectionism and procrastination, which can lead to missed opportunities and lack of progress.
 
 <!-- </quote> -->
 

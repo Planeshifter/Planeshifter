@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Why can't we stay in one place? To get somewhere, we have to keep moving. Or, as Saint Augustine said, "To reach a port, we must sail - sail, not tie at anchor." This quote emphasizes the importance of taking action and remaining focused on our goals. It encourages us to take steps forward in our lives rather than staying in a stagnant place. By adopting this attitude, we can achieve our goals and reach fulfillment in our lives.
+How do we find true happiness? By looking within. Or, as Benjamin Franklin said, “Happiness depends more on the inward disposition of mind than on outward circumstances.” This quote stresses the importance of looking within to find true and lasting happiness, not depending on our external environment or situations. This is important to us because it suggests that our emotional wellbeing is in our hands and that we can find joy, no matter the conditions of our lives.
 
 <!-- </quote> -->
 

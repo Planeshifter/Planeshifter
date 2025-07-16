@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-How do we find true happiness? By looking within. Or, as Benjamin Franklin said, “Happiness depends more on the inward disposition of mind than on outward circumstances.” This quote stresses the importance of looking within to find true and lasting happiness, not depending on our external environment or situations. This is important to us because it suggests that our emotional wellbeing is in our hands and that we can find joy, no matter the conditions of our lives.
+How do you move forward in life? The best way is through it. Or, as Robert Frost said, "The best way out is always through." This means that it is better to confront your challenges and work through them than to go around them. This quote relates to my daily life by reminding me to take on any obstacles that come my way and trust that I have the perseverance to persevere and make it through.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-When is the best time to act? When the time is right. Or, as Andrew Jackson said, "Take time to deliberate; but when the time for action arrives, stop thinking and go in." This quote means that it is important to take time for careful consideration of a situation before making a decision, but when the time for action has come, it is best to stop worrying and move forward with confidence. This quote is important to me because it helps to remind me to weigh the pros and cons of any decision before taking action, but also to trust my instincts and act with purpose when the time is right.
+What is entrepreneurship? It is a practice. Or, as Peter Drucker said, "Entrepreneurship is neither a science nor an art. It is a practice." This quote encourages us to focus on the doing—that is, putting into practice the things we learn, instead of just studying them. Practicing entrepreneurship is key in order to catalyze growth and find success. This quote is important to me as a personal trainer and self-help guru because it emphasizes the importance of putting into practice the advice and information I provide to those I work with, rather than simply teaching them. This helps ensure that my clients are able to use the knowledge I give them to become successful.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Too often we hesitate when presented with a new opportunity. As Joe Penna said: "If you think that you are going to love something, give it a try. You’re going to kick yourself in the butt for the rest of your life if you don’t." We should never be afraid to take chances and explore new possibilities.
+Yoda's words of wisdom remind us that there is no room for excuses. As he said: "Do or do not. There is no try". We must be willing to take risks and commit to a course of action if we are serious about achieving success. Otherwise, our efforts will amount to nothing.
 
 <!-- </quote> -->
 

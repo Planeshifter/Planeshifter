@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Yoda's words of wisdom remind us that there is no room for excuses. As he said: "Do or do not. There is no try". We must be willing to take risks and commit to a course of action if we are serious about achieving success. Otherwise, our efforts will amount to nothing.
+Words have the power to create or destroy relationships. As John Rampton said: "You can say anything to anyone, but how you say it will determine how they will react". Whether we are talking to friends, family or colleagues, it's important to be mindful of how we communicate and to choose our words wisely.
 
 <!-- </quote> -->
 

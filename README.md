@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No matter how scared we are, we cannot let the fear of failure stop us from achieving our dreams. As Kevin Plank, CEO of Under Armour said: "There’s an entrepreneur right now, scared to death, making excuses, saying, ‘It’s not the right time just yet.’ There’s no such thing as a good time. Get out of your garage and go take a chance, and start your business." We can't wait for the ideal circumstances to take a shot at success. We must take the plunge and make our own luck. Quote: "You can't connect the dots looking forward; you can only connect them looking backwards. So you have to trust that the dots will somehow connect in your future. ― Steve Jobs
+How can hard work turn solutions into reality? By taking the necessary steps to make it happen. Or, as Ullery said, "Careful thinking and hard work will solve nearly all your problems. Try and see for yourself." This quote speaks to the power of taking action and persevering in order to achieve success. It is an essential reminder that often times our problems can be solved if we are willing to put in the hard work and effort. It's an important lesson that it is often the effort we put in that makes the difference between success and failure.
 
 <!-- </quote> -->
 

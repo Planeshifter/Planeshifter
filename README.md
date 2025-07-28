@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is the best way to learn?  Through trial and error. Or, as Thomas Edison said, "I have not failed. I’ve just found 10,000 ways that won’t work." This quote captures the idea that success is often found through experimentation, rather than finding the right answer right away. This is important to our daily lives because we should be open to trying new things and not giving up after a few failed attempts, but instead learning from our mistakes and continuing to search for better solutions.
+We can't let safety and comfort keep us from taking risks and achieving our dreams. As William Shedd said: "A ship in harbor is safe. But that’s now what ships are built for". We can't let our fear of failure hold us back from pursing our goals. Instead, we must take bold steps forward with confidence and faith.
 
 <!-- </quote> -->
 

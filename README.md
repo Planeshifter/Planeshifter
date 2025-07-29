@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We can't let safety and comfort keep us from taking risks and achieving our dreams. As William Shedd said: "A ship in harbor is safe. But that’s now what ships are built for". We can't let our fear of failure hold us back from pursing our goals. Instead, we must take bold steps forward with confidence and faith.
+We all have dreams and ambitions but ultimately, it's the small ideas that can lead to the biggest successes. As Matt Mullenweg, founder of Automattic said: “I don’t have big ideas. I sometimes have small ideas, which seem to work out.” It's not always the grand plans that produce the most impressive results but instead, the small, achievable goals executed with consistency and dedication.
 
 <!-- </quote> -->
 

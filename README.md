@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all have dreams and ambitions but ultimately, it's the small ideas that can lead to the biggest successes. As Matt Mullenweg, founder of Automattic said: “I don’t have big ideas. I sometimes have small ideas, which seem to work out.” It's not always the grand plans that produce the most impressive results but instead, the small, achievable goals executed with consistency and dedication.
+Having a vision is not enough if we don't take any action. As the Japanese proverb says, “Vision without action is a daydream. Action without vision is a nightmare.” If we don't have a clear plan and direction, our actions will be misguided and we will never reach our goals.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Having a vision is not enough if we don't take any action. As the Japanese proverb says, “Vision without action is a daydream. Action without vision is a nightmare.” If we don't have a clear plan and direction, our actions will be misguided and we will never reach our goals.
+What can't you rely on when your dreams are blurry? Your sight. Or, as Mark Twain said, "You cannot depend on your eyes when your imagination is out of focus." This quote encourages us to pay attention to our mental clarity and focus in order to properly use our vision. Imagination is an invaluable tool for life, so it is important to ensure it is working correctly in order to make the most of our eyes. It is essential to stay sharp and focused on our goals so that we can use our eyes to help us identify and reach them.
 
 <!-- </quote> -->
 

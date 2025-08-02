@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Robert Orben's quote is a reminder to stay focused on our goals. He said it best: "Every day I get up and look through the Forbes list of the richest people in America. If I’m not there, I go to work." That's the spirit of ambition and drive that will get us to where we want to be.
+Treating your customers with respect and appreciation is key to a successful business. As Chris Brogan said: "Don't treat your customers like a bunch of purses and wallets". Customers should be seen as people with needs, wants, and feelings. Focusing on creating a positive customer experience will ensure customers feel valued and appreciated.
 
 <!-- </quote> -->
 

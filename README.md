@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Treating your customers with respect and appreciation is key to a successful business. As Chris Brogan said: "Don't treat your customers like a bunch of purses and wallets". Customers should be seen as people with needs, wants, and feelings. Focusing on creating a positive customer experience will ensure customers feel valued and appreciated.
+Creativity and originality are important, but they are not enough to achieve success. In the modern world of business, as David Ogilvy said, "it is useless to be a creative, original thinker unless you can also sell what you create". This means that we need to be able to market our ideas and skills in order to make them successful.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Creativity and originality are important, but they are not enough to achieve success. In the modern world of business, as David Ogilvy said, "it is useless to be a creative, original thinker unless you can also sell what you create". This means that we need to be able to market our ideas and skills in order to make them successful.
+Success won't come to you - you need to go out and get it. As Nolan Bushnell said: "The critical ingredient is getting off your butt and doing something". If we proactively take action, take risks and make moves, we can open up opportunities and create our own luck.
 
 <!-- </quote> -->
 

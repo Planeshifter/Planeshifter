@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success won't come to you - you need to go out and get it. As Nolan Bushnell said: "The critical ingredient is getting off your butt and doing something". If we proactively take action, take risks and make moves, we can open up opportunities and create our own luck.
+What teaches us more than books? Years. Or, as Berthold Auerbach said, "Years teach us more than books." This quote emphasizes the importance of experience in learning, which is not limited to books. It is related to our daily life because it encourages us to learn through experience rather than just relying on books; we can gain knowledge and wisdom from our own experiences.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No matter how much we achieve, success is not only measured by material possessions. Bo Bennet reminds us that we should strive for personal growth and development in order to be truly successful. Success is not what we have, but who we are and how far we have come.
+Education is key to success, but it doesn't have to be a formal process. As Mitch Hedberg said: “I didn’t go to college, but if I did, I would’ve taken all my tests at a restaurant, ’cause ‘The customer is always right.’” This quote teaches us that we can gain knowledge from any environment, as long as we approach it with an open mind and a willingness to learn.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Education is key to success, but it doesn't have to be a formal process. As Mitch Hedberg said: “I didn’t go to college, but if I did, I would’ve taken all my tests at a restaurant, ’cause ‘The customer is always right.’” This quote teaches us that we can gain knowledge from any environment, as long as we approach it with an open mind and a willingness to learn.
+What's the key to success? Knowing something no one else knows. Or, as Aristotle Onassis said, "The secret of success is to know something nobody else knows." This implies the importance of having knowledge or skills that are rare and valuable. This quote is incredibly relevant in today's world, as having that extra knowledge or skill can help you stand out in a competitive job market or lead to success in other areas of life.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is often a result of hard work and determination. As Zig Ziglar said: "One can get anything if he is willing to help enough others get what they want." We can't expect to achieve our goals if we don't first contribute to the success of others. By taking the time to help and support others, we create an environment of collaboration and cooperation that ultimately benefits us all.
+There is nothing more powerful than a dream. As Malcolm Forbes said, “When you cease to dream you cease to live”. Dreams provide us with hope and motivation to strive for greatness, and without them, life would be meaningless. So never give up on your dreams and keep living.
 
 <!-- </quote> -->
 

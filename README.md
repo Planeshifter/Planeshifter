@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-There is nothing more powerful than a dream. As Malcolm Forbes said, “When you cease to dream you cease to live”. Dreams provide us with hope and motivation to strive for greatness, and without them, life would be meaningless. So never give up on your dreams and keep living.
+What is success's opposite? Failure. Or, as Napoleon Hill said, "Every failure brings with it the seed of an equivalent success". This suggests that failure is not the end, but instead an opportunity for growth. This is applicable to everyday life because it encourages us to take risks, stay resilient, and not be discouraged by our failures, but instead learn from them and use them to strive for success.
 
 <!-- </quote> -->
 

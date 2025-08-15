@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is success's opposite? Failure. Or, as Napoleon Hill said, "Every failure brings with it the seed of an equivalent success". This suggests that failure is not the end, but instead an opportunity for growth. This is applicable to everyday life because it encourages us to take risks, stay resilient, and not be discouraged by our failures, but instead learn from them and use them to strive for success.
+No one can deny the importance of a good education. However, Jim Rohn, the author and speaker, points out that education should not be limited to the classroom. He says: "Formal education will make you a living; self-education will make you a fortune." Self-education is just as necessary and can be the difference between a good life and a great one.
 
 <!-- </quote> -->
 

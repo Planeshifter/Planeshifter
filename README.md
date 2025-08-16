@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No one can deny the importance of a good education. However, Jim Rohn, the author and speaker, points out that education should not be limited to the classroom. He says: "Formal education will make you a living; self-education will make you a fortune." Self-education is just as necessary and can be the difference between a good life and a great one.
+We all want to be successful, but it's important to remember that success is not the only measure of worth. As Albert Einstein said: "Try not to be a man of success, but rather try to become a man of value." Being of value to society is the true measure of success. We should strive to make meaningful contributions to the world, rather than just pursuing fame and fortune.
 
 <!-- </quote> -->
 

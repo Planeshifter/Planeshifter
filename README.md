@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all want to be successful, but it's important to remember that success is not the only measure of worth. As Albert Einstein said: "Try not to be a man of success, but rather try to become a man of value." Being of value to society is the true measure of success. We should strive to make meaningful contributions to the world, rather than just pursuing fame and fortune.
+What has a dream but must be done on time? A goal. Or, as Napoleon Hill said, "A goal is a dream with a deadline." This means that when you set a goal, you need to make sure you work to attain it before the deadline you set for yourself. This quote is important because it emphasizes the importance of setting a timeline for goals in order to hold yourself accountable and make sure that you are taking action towards achieving them.
 
 <!-- </quote> -->
 

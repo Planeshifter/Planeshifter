@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What has a dream but must be done on time? A goal. Or, as Napoleon Hill said, "A goal is a dream with a deadline." This means that when you set a goal, you need to make sure you work to attain it before the deadline you set for yourself. This quote is important because it emphasizes the importance of setting a timeline for goals in order to hold yourself accountable and make sure that you are taking action towards achieving them.
+We all want to enjoy our lives and find a job where we can be passionate about. As Confucius said: "Find a job you love and you'll never work a day in your life". This means that if we find a job that we love and are passionate about, then every day will be an enjoyable experience.
 
 <!-- </quote> -->
 

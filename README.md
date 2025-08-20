@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What should you do to aim higher than the average? Aim out of the ballpark. What do you do when you want to hit it out of the park? A: Don't bunt! How can you reach your highest potential? A: Aim out of the ballpark. Or, as David Ogilvy said, "Don't bunt. Aim out of the ballpark." This quote encourages us to take chances and strive for excellence: to aim higher than the average and try to achieve something extraordinary. In our daily lives, this quote is a reminder to us that we should not be content with mediocrity or settling for the status quo. Instead, we should take risks, push ourselves beyond our comfort zone, and strive for greatness.
+It takes time and effort to get to where we want to be. As the Chinese proverb says, "A jade stone is useless before it is processed; a man is good-for-nothing until he is educated". Education is the key to unlocking our potential and achieving our goals. We must be open to learning, growing and developing our skills if we want to make something of ourselves.
 
 <!-- </quote> -->
 

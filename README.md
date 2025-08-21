@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It takes time and effort to get to where we want to be. As the Chinese proverb says, "A jade stone is useless before it is processed; a man is good-for-nothing until he is educated". Education is the key to unlocking our potential and achieving our goals. We must be open to learning, growing and developing our skills if we want to make something of ourselves.
+Stepping out of our comfort zone is often the only way to achieve progress. As John Shedd said: "A ship in harbor is safe, but that’s not what ships are for". We must take chances and explore new horizons if we want to grow and succeed.
 
 <!-- </quote> -->
 

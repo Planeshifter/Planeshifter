@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Stepping out of our comfort zone is often the only way to achieve progress. As John Shedd said: "A ship in harbor is safe, but that’s not what ships are for". We must take chances and explore new horizons if we want to grow and succeed.
+Og Mandino's words are wise and true - victory doesn't come easy. It is only after many struggles and countless defeats that we can achieve success. We must be resilient and never give up, no matter how hard the task may seem. Only then can we taste sweet success.
 
 <!-- </quote> -->
 

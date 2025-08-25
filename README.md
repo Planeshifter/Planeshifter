@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success isn't a destination we reach, but a journey we're on. As Thomas J. Watson said, “Whenever an individual or a business decides that success has been attained, progress stops”. We must always strive to keep improving and growing, otherwise our journey to success is at a dead end.
+David Karp, founder of Tumblr, said it best: “Every feature has some maintenance cost, and having fewer features lets us focus on the ones we care about and make sure they work very well.” This means that quantity isn't as important as quality. We should focus on creating and perfecting the few things that are important, rather than trying to do too much all at once.
 
 <!-- </quote> -->
 

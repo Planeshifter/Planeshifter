@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-David Karp, founder of Tumblr, said it best: “Every feature has some maintenance cost, and having fewer features lets us focus on the ones we care about and make sure they work very well.” This means that quantity isn't as important as quality. We should focus on creating and perfecting the few things that are important, rather than trying to do too much all at once.
+It‘s never too late to become the best version of yourself. As George Eliot said: “It is never too late to be what you might have been”. We have the power to define our own destiny, regardless of our circumstances or age. We can always be the person we want to be and fulfill our potential in life.
 
 <!-- </quote> -->
 

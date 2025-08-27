@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It‘s never too late to become the best version of yourself. As George Eliot said: “It is never too late to be what you might have been”. We have the power to define our own destiny, regardless of our circumstances or age. We can always be the person we want to be and fulfill our potential in life.
+What teaches us more than books? Years. Or, as Berthold Auerbach said, "Years teach us more than books." This quote emphasizes the importance of experience in learning, which is not limited to books. It is related to our daily life because it encourages us to learn through experience rather than just relying on books; we can gain knowledge and wisdom from our own experiences.
 
 <!-- </quote> -->
 

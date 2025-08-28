@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What teaches us more than books? Years. Or, as Berthold Auerbach said, "Years teach us more than books." This quote emphasizes the importance of experience in learning, which is not limited to books. It is related to our daily life because it encourages us to learn through experience rather than just relying on books; we can gain knowledge and wisdom from our own experiences.
+Success is not about luck, it is about resilience. As David Brinkley said, "A successful man is one who can lay a firm foundation with the bricks others have thrown at him." It's about taking the challenges and obstacles that come our way and using them to build a strong platform for success. It requires courage, hard work and dedication to make something out of the challenges life throws at us.
 
 <!-- </quote> -->
 

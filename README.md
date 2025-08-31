@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-If you want to build an exceptional team, you'll need exceptional people. As Marc Benioff, CEO of Salesforce, said: "The secret to successful hiring is this: look for the people who want to change the world." It's not just about who has the right skillset, it's about seeking out people who are motivated and passionate.
+We all want to enjoy our lives and find a job where we can be passionate about. As Confucius said: "Find a job you love and you'll never work a day in your life". This means that if we find a job that we love and are passionate about, then every day will be an enjoyable experience.
 
 <!-- </quote> -->
 

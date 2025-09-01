@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all want to enjoy our lives and find a job where we can be passionate about. As Confucius said: "Find a job you love and you'll never work a day in your life". This means that if we find a job that we love and are passionate about, then every day will be an enjoyable experience.
+Dreams can only come true if we are willing to put in the necessary effort. As Donald Trump said: "I wasn't satisfied just to earn a good living. I was looking to make a statement." It takes dedication, resilience and dedication to make those dreams a reality.
 
 <!-- </quote> -->
 

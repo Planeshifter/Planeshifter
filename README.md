@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Dreams can only come true if we are willing to put in the necessary effort. As Donald Trump said: "I wasn't satisfied just to earn a good living. I was looking to make a statement." It takes dedication, resilience and dedication to make those dreams a reality.
+We can all achieve greatness. As Dr. Napoleon Hill said: "Whatever the mind can conceive and believe, the mind can achieve". It is our beliefs that shape our success, and with the right mindset, we can reach our goals. Having a strong sense of self-belief and faith is essential in order to reach our potential.
 
 <!-- </quote> -->
 

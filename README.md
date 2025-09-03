@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We can all achieve greatness. As Dr. Napoleon Hill said: "Whatever the mind can conceive and believe, the mind can achieve". It is our beliefs that shape our success, and with the right mindset, we can reach our goals. Having a strong sense of self-belief and faith is essential in order to reach our potential.
+The key to successful living is to think for yourself. As Steve Jobs said: "Don't be trapped by dogma ― which is living with the results of other people's thinking". We should make our own decisions, and not be bounded by the opinions of others. Only then can we live with true freedom and purpose.
 
 <!-- </quote> -->
 

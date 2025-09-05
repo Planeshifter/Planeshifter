@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What fuels achievement? Goals. Or, as Brian Tracy said, "Goals are the fuel in the furnace of achievement." This quote encourages us to set goals to motivate and inspire us to reach our highest potential and achieve our ambitions. This relates to my daily life because it reminds me to set goals that will push me to continue striving towards creating the life that I want and achieving my dreams.
+Our actions speak louder than words. As Abraham Lincoln said: "Example is not the main thing in influencing other people; it's the only thing." We need to set a good example if we want to be successful in our endeavors. We should strive to be role models who inspire and motivate others.
 
 <!-- </quote> -->
 

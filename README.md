@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Our actions speak louder than words. As Abraham Lincoln said: "Example is not the main thing in influencing other people; it's the only thing." We need to set a good example if we want to be successful in our endeavors. We should strive to be role models who inspire and motivate others.
+Success is often a matter of timing and discretion. Chris Dixon, co-founder of Hunch, said: "Get big quietly, so you don’t tip off potential competitors". Taking a slow and steady approach to growth is key to staying ahead in the game and avoiding unwanted attention.
 
 <!-- </quote> -->
 

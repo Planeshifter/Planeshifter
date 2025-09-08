@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Creativity and originality are important, but they are not enough to achieve success. In the modern world of business, as David Ogilvy said, "it is useless to be a creative, original thinker unless you can also sell what you create". This means that we need to be able to market our ideas and skills in order to make them successful.
+How long does it take to do anything? As long as it takes! Or, as Helen Keller said, "We can do anything we want to do if we stick to it long enough." This quote encourages us to persist in the face of difficulties, no matter how long it takes. This applies to our daily lives when we set goals, as we may hit roadblocks or experience discouragement along the way. However, if we stick with it, we can eventually attain our goals.
 
 <!-- </quote> -->
 

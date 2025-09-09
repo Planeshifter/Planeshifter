@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-How long does it take to do anything? As long as it takes! Or, as Helen Keller said, "We can do anything we want to do if we stick to it long enough." This quote encourages us to persist in the face of difficulties, no matter how long it takes. This applies to our daily lives when we set goals, as we may hit roadblocks or experience discouragement along the way. However, if we stick with it, we can eventually attain our goals.
+Where should you look to keep going? Upward! Or, as Charlotte Bronte said, "I avoid looking forward or backward, and try to keep looking upward." This quote emphasizes the importance of staying focused on the future and looking ahead, instead of dwelling on the past. This is important to keep in mind, as focusing on the future instead of the past can lead to greater success and improved well-being.
 
 <!-- </quote> -->
 

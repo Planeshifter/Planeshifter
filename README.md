@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Where should you look to keep going? Upward! Or, as Charlotte Bronte said, "I avoid looking forward or backward, and try to keep looking upward." This quote emphasizes the importance of staying focused on the future and looking ahead, instead of dwelling on the past. This is important to keep in mind, as focusing on the future instead of the past can lead to greater success and improved well-being.
+We all want to be successful, but it's important to remember that success is not the only measure of worth. As Albert Einstein said: "Try not to be a man of success, but rather try to become a man of value." Being of value to society is the true measure of success. We should strive to make meaningful contributions to the world, rather than just pursuing fame and fortune.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all want to be successful, but it's important to remember that success is not the only measure of worth. As Albert Einstein said: "Try not to be a man of success, but rather try to become a man of value." Being of value to society is the true measure of success. We should strive to make meaningful contributions to the world, rather than just pursuing fame and fortune.
+Competition is a part of life, but it's not for everyone. As the saying goes, "If you don’t have a competitive advantage ― don’t compete". It's not just about winning, but it's about setting yourself up for success by ensuring that you have the right resources and skills to be successful. Before entering a competition, it's important to make sure that you have an advantage that can help you stand out from the crowd.
 
 <!-- </quote> -->
 

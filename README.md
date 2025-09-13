@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is full of risks and opportunities. As Wayne Gretzky said: "You miss 100 percent of the shots you don’t take". We can't be afraid of the unknown or the chance of failure. Taking the plunge can lead to great rewards and lead us to success.
+You can't always get what you want. As the Chinese proverb says: "All cats love fish but fear to wet their paws". We may be tempted by something, but if it means taking a risk, we may be more cautious. We need to be brave and take a chance if we want to achieve our goals.
 
 <!-- </quote> -->
 

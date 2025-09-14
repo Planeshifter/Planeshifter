@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You can't always get what you want. As the Chinese proverb says: "All cats love fish but fear to wet their paws". We may be tempted by something, but if it means taking a risk, we may be more cautious. We need to be brave and take a chance if we want to achieve our goals.
+You can't just throw any feature into a project and expect it to work. As Noah Everett from Twitpic says: "A poorly implemented feature hurts more than not having it at all". It's important to take the time to make sure all features are properly thought out and implemented. This can make all the difference between success and failure.
 
 <!-- </quote> -->
 

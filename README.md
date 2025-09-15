@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You can't just throw any feature into a project and expect it to work. As Noah Everett from Twitpic says: "A poorly implemented feature hurts more than not having it at all". It's important to take the time to make sure all features are properly thought out and implemented. This can make all the difference between success and failure.
+Make sure to never let self doubt stand in your way. As Theodore Roosevelt said: "Whenever you are asked if you can do a job, tell 'em, 'Certainly, I can!' Then get busy and find out how to do it." It's always important to have a positive attitude and never give up on achieving your goals.
 
 <!-- </quote> -->
 

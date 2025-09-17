@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We live in a world where knowledge and technology are becoming increasingly important. As Bill Gates said: "Be nice to geeks, you'll probably end up working for one". We should respect the intelligence and hard work of the geeks that contribute to the advancement of our society.
+Who are you? Yourself. Or, as Ralph Waldo Emerson said: "Insist on yourself. Never imitate." This encourages us to explore and express our own unique ideas, opinions, and talents rather than simply copying what someone else has done. We all have our own gifts, and it is important to cultivate them and use them to make our own mark on the world rather than trying to be like someone else. By embracing ourselves and our differences, we can unlock our full potential and create a life that is truly our own.
 
 <!-- </quote> -->
 

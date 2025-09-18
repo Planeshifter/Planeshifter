@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Who are you? Yourself. Or, as Ralph Waldo Emerson said: "Insist on yourself. Never imitate." This encourages us to explore and express our own unique ideas, opinions, and talents rather than simply copying what someone else has done. We all have our own gifts, and it is important to cultivate them and use them to make our own mark on the world rather than trying to be like someone else. By embracing ourselves and our differences, we can unlock our full potential and create a life that is truly our own.
+Og Mandino's words are wise and true - victory doesn't come easy. It is only after many struggles and countless defeats that we can achieve success. We must be resilient and never give up, no matter how hard the task may seem. Only then can we taste sweet success.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Leaders don't rely on coercion to get the job done. As Dwight D. Eisenhower said: "Leadership is the art of getting someone else to do something you want done because he wants to do it". This requires understanding people's motivations, inspiring and connecting with them, and creating an environment of trust and open communication.
+Leadership is about more than just telling people what to do. It's about doing the right thing even when no one is watching. As George Van Valkenburg said, "Leadership is doing what is right when no one is watching." That takes real courage and self-discipline, and it's what sets great leaders apart from the rest.
 
 <!-- </quote> -->
 

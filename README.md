@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Leadership is about more than just telling people what to do. It's about doing the right thing even when no one is watching. As George Van Valkenburg said, "Leadership is doing what is right when no one is watching." That takes real courage and self-discipline, and it's what sets great leaders apart from the rest.
+The best way to attain success is to trust yourself. As Ben Silbermann, co-founder of Pinterest said: "Don’t take too much advice. Most people who have a lot of advice to give... Just build things and find out if they work." We should take risks, act with confidence and not overthink every decision. That’s how innovation and genuine progress will take place.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-The best way to attain success is to trust yourself. As Ben Silbermann, co-founder of Pinterest said: "Don’t take too much advice. Most people who have a lot of advice to give... Just build things and find out if they work." We should take risks, act with confidence and not overthink every decision. That’s how innovation and genuine progress will take place.
+Having an idea is only the first step to achieving success. As Todd Garland, founder of BuySellAds, said: "Openly share and talk to people about your idea. Use their lack of interest or doubt to fuel your motivation to make it happen." It's important to use criticism and negativity constructively, as it can help to motivate you and push you to reach your goals. Quote: "Success is not the key to happiness. Happiness is the key to success. ― Albert Schweitzer
 
 <!-- </quote> -->
 

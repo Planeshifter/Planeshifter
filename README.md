@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Having an idea is only the first step to achieving success. As Todd Garland, founder of BuySellAds, said: "Openly share and talk to people about your idea. Use their lack of interest or doubt to fuel your motivation to make it happen." It's important to use criticism and negativity constructively, as it can help to motivate you and push you to reach your goals. Quote: "Success is not the key to happiness. Happiness is the key to success. ― Albert Schweitzer
+What can be created without knowledge? Imagination. Or, as Albert Einstein said, "Imagination is more important than knowledge." This quote means that having ideas and thinking outside the box is more important than simply possessing existing knowledge. In life, having creative and innovative thoughts and ideas can help us to be successful and get ahead, whether in the workplace, in relationships, or in any other area. We can use our imaginations to come up with new solutions and approaches that can benefit us in the long run.
 
 <!-- </quote> -->
 

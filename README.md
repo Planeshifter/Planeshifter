@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is the cure for all of life's ills? Wisdom. Or, as Thomas Huxley said, "The only medicine for suffering, crime, and all the other woes of mankind, is wisdom." Wisdom can help us to better understand our experiences and make smart decisions. In our daily life, wisdom can guide us to make better choices that will benefit us and the people around us.
+Life is a journey, and the only way to get to the finish line is to push yourself to the limit. As Mario Andretti put it: "If everything seems under control, you’re just not going fast enough." If you want to achieve success, you must be willing to take risks and push yourself beyond your comfort zone.
 
 <!-- </quote> -->
 

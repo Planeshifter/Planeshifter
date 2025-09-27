@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We can't let safety and comfort keep us from taking risks and achieving our dreams. As William Shedd said: "A ship in harbor is safe. But that’s now what ships are built for". We can't let our fear of failure hold us back from pursing our goals. Instead, we must take bold steps forward with confidence and faith.
+Adaptability is key to success. Victoria Ransom, co-founder of Wildfire Interactive, said it best: "Even if you don't have the perfect idea to begin with, you can likely adapt". This is true in almost any endeavor; adjusting our plans and expectations to fit reality is how we make progress.
 
 <!-- </quote> -->
 

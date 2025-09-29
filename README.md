@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-The key to successful living is to think for yourself. As Steve Jobs said: "Don't be trapped by dogma ― which is living with the results of other people's thinking". We should make our own decisions, and not be bounded by the opinions of others. Only then can we live with true freedom and purpose.
+Why can't you please everyone? You can't please everyone. Or, as Herbert Bayard Swope said, "I cannot give you the formula for success, but I can give you the formula for failure - which is: Try to please everybody." This quote recognizes that it is generally not possible to please everyone and that trying to do so can be a recipe for failure. It reminds us to stay focused on our own goals and not worry too much about what others think. In our daily lives, this quote reminds us to stay true to ourselves and our values, rather than trying to live up to everyone else's expectations.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Failure is an essential part of success. As Jeff Bezos said: "If you want to be inventive, you have to be willing to fail". We can’t be scared of the possibility of failure. It’s only through repeated attempts that we can find our way to the right solution.
+Money isn't everything, but it is an important factor when it comes to achieving success. As Michael Dunlop said: "I treat business a bit like a computer game. I count money as points. I'm doing really well: making lots of money and lots of points." This mindset is key to staying motivated and building a successful business.
 
 <!-- </quote> -->
 

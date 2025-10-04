@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What do dreamers do? Shape the future. Or, as Eleanor Roosevelt said, "The future belongs to those who believe in the beauty of their dreams." This quote encourages us to believe in the potential of our dreams, and to have the courage to pursue them. It is an important reminder that we have the power to create the future we want, and that our dreams have the potential to become a reality. By believing in our dreams, we can take steps to make them happen and ultimately shape our own futures.
+What is more important, the journey or the destination? The journey. Or, as Richard Monckton Milnes said, "The virtue lies in the struggle, not in the prize." This quote highlights the importance of the journey one takes to reach their goals, rather than focusing solely on the end result. We can't forget the process of getting there and the learning experiences, relationships, and personal growth that come with the struggle. Applying this to our daily life, it’s important to stay mindful and be present throughout our journey in achieving our goals, rather than just focusing on the end result of success.
 
 <!-- </quote> -->
 

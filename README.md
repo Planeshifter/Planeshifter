@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is more important, the journey or the destination? The journey. Or, as Richard Monckton Milnes said, "The virtue lies in the struggle, not in the prize." This quote highlights the importance of the journey one takes to reach their goals, rather than focusing solely on the end result. We can't forget the process of getting there and the learning experiences, relationships, and personal growth that come with the struggle. Applying this to our daily life, it’s important to stay mindful and be present throughout our journey in achieving our goals, rather than just focusing on the end result of success.
+No matter how big your dreams are, it’s important to focus on the present and make sure that you are doing everything you can to serve one customer at a time. As Gary Comer said, “Worry about being better; bigger will take care of itself. Think one customer at a time and take care of each one the best way you can.”
 
 <!-- </quote> -->
 

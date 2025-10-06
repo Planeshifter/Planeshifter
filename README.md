@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No matter how big your dreams are, it’s important to focus on the present and make sure that you are doing everything you can to serve one customer at a time. As Gary Comer said, “Worry about being better; bigger will take care of itself. Think one customer at a time and take care of each one the best way you can.”
+Life is full of ups and downs. As the Chinese Proverb says: "Defeat isn't bitter if you don't swallow it". We can choose to look at failure as an opportunity to learn and grow, instead of seeing it as a permanent defeat. It is important to remember that our attitude shapes our future.
 
 <!-- </quote> -->
 

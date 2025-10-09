@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all have a finite amount of time to create the life we want. As Steve Jobs said: "Your time is limited, so don’t waste it living someone else’s life. Don’t be trapped by dogma ― which is living with the results of other people’s thinking. Don’t let the noise of other’s opinions drown out your own inner voice. And most important, have the courage to follow your heart and intuition. They somehow already know what you truly want to become. Everything else is secondary.” Make sure you take the time to listen to your intuition, and then take the steps necessary to make it come alive.
+How do you move forward in life? The best way is through it. Or, as Robert Frost said, "The best way out is always through." This means that it is better to confront your challenges and work through them than to go around them. This quote relates to my daily life by reminding me to take on any obstacles that come my way and trust that I have the perseverance to persevere and make it through.
 
 <!-- </quote> -->
 

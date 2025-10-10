@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-How do you move forward in life? The best way is through it. Or, as Robert Frost said, "The best way out is always through." This means that it is better to confront your challenges and work through them than to go around them. This quote relates to my daily life by reminding me to take on any obstacles that come my way and trust that I have the perseverance to persevere and make it through.
+What is a leader's most valuable commodity? Hope. Or, as Napoleon Bonaparte said, "A leader is a dealer in hope." This quote emphasizes the importance of hope in leadership, which is essential for motivating, inspiring, and guiding others towards a common goal. It is important to remember this in our daily lives, as we are all leaders in some capacity, whether it is leading our families, friends, or co-workers. Having hope, and the ability to inspire others with that hope, is a key skill to possess in order to be a successful leader.
 
 <!-- </quote> -->
 

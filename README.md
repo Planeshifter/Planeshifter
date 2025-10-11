@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is a leader's most valuable commodity? Hope. Or, as Napoleon Bonaparte said, "A leader is a dealer in hope." This quote emphasizes the importance of hope in leadership, which is essential for motivating, inspiring, and guiding others towards a common goal. It is important to remember this in our daily lives, as we are all leaders in some capacity, whether it is leading our families, friends, or co-workers. Having hope, and the ability to inspire others with that hope, is a key skill to possess in order to be a successful leader.
+Having a great idea is not enough on its own. As Michael Dell said: "Ideas are commodity. Execution of them is not." In order to bring your ideas to life, you need to have the courage and determination to see them through. Knowing how to carry out a plan is just as important as having the idea in the first place.
 
 <!-- </quote> -->
 

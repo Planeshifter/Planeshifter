@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Leadership is key to success. Charles Maurice said it best when he proclaimed, "I am more afraid of an army of one hundred sheep led by a lion than an army of one hundred lions led by a sheep." True leaders don't just follow the crowd, they have the courage and conviction to blaze their own path and inspire others to follow.
+Success won't come to you - you need to go out and get it. As Nolan Bushnell said: "The critical ingredient is getting off your butt and doing something". If we proactively take action, take risks and make moves, we can open up opportunities and create our own luck.
 
 <!-- </quote> -->
 

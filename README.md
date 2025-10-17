@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-If you want to understand what your customer really needs, the best way is to ask them. As Lisa Stone said, “Don’t tell. Ask.” By asking your customers what they want and need, you are more likely to offer them a product or service that will meet their needs and make them happy.
+Sometimes we need to be bold and push the boundaries in order to reach success. As the Unknown says: "If you ain't making waves, you ain't kickin' hard enough". We must take risks and be willing to go against the grain in order to reach our goals. So never be afraid to make a splash!
 
 <!-- </quote> -->
 

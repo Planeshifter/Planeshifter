@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Sometimes we need to be bold and push the boundaries in order to reach success. As the Unknown says: "If you ain't making waves, you ain't kickin' hard enough". We must take risks and be willing to go against the grain in order to reach our goals. So never be afraid to make a splash!
+Why can't we stay in one place? To get somewhere, we have to keep moving. Or, as Saint Augustine said, "To reach a port, we must sail - sail, not tie at anchor." This quote emphasizes the importance of taking action and remaining focused on our goals. It encourages us to take steps forward in our lives rather than staying in a stagnant place. By adopting this attitude, we can achieve our goals and reach fulfillment in our lives.
 
 <!-- </quote> -->
 

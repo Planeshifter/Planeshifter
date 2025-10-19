@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Why can't we stay in one place? To get somewhere, we have to keep moving. Or, as Saint Augustine said, "To reach a port, we must sail - sail, not tie at anchor." This quote emphasizes the importance of taking action and remaining focused on our goals. It encourages us to take steps forward in our lives rather than staying in a stagnant place. By adopting this attitude, we can achieve our goals and reach fulfillment in our lives.
+What determines the quality of life? Your thoughts. Or, as Marcus Aurelius said, "The happiness of your life depends upon the quality of your thoughts; therefore guard accordingly." This quote is emphasizing the importance of watching our thoughts, as they determine how happy our lives will be. We cannot control every situation that arises in life, but we can control our thoughts and how we respond to them. This quote encourages us to be mindful of the thoughts that pass through our minds, and to keep the positive ones that lead to a happy life.
 
 <!-- </quote> -->
 

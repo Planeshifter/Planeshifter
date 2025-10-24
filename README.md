@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is achievable when you believe in yourself and in what you can do. As Napoleon Hill said, "Anything the mind can conceive and believe, it can achieve". With a strong mindset, determination and hard work, you can reach your dreams.
+We should never rely too much on our plans. As Dwight D. Eisenhower said: "In preparing for battle I have always found that plans are useless, but planning is indispensable". Even if plans can fail, the process of planning will help us prepare for any eventuality.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Mark Zuckerberg is a modern example of how important it is to learn how to program. He advises us to learn and develop our skills in this field, as it can bring great success and opportunities. As he says: "My number one piece of advice is: you should learn how to program". With the right knowledge and techniques, we can unlock new possibilities.
+You can't learn to walk or succeed in life by following a strict set of rules. As Richard Branson said, "You learn by doing and falling over." It's only through trial and error, hard work, and resilience that we can achieve our goals and reach our full potential.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You can't learn to walk or succeed in life by following a strict set of rules. As Richard Branson said, "You learn by doing and falling over." It's only through trial and error, hard work, and resilience that we can achieve our goals and reach our full potential.
+As Grace Hopper said, “It’s easier to ask forgiveness than it is to get permission.” This quote reflects the importance of taking initiative and taking risks. It's often easier to look for forgiveness after making a mistake rather than seeking permission beforehand. We should be willing to take risks and accept the consequences.
 
 <!-- </quote> -->
 

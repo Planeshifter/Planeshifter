@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-As Grace Hopper said, “It’s easier to ask forgiveness than it is to get permission.” This quote reflects the importance of taking initiative and taking risks. It's often easier to look for forgiveness after making a mistake rather than seeking permission beforehand. We should be willing to take risks and accept the consequences.
+Hard work is the key to success. As Vidal Sassoon said: “The only place where success comes before work is in the dictionary.” No one can ever reach their goals without putting in the effort. Success doesn't come automatically, it takes dedication and perseverance.
 
 <!-- </quote> -->
 

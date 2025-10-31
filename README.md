@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Hard work is the key to success. As Vidal Sassoon said: “The only place where success comes before work is in the dictionary.” No one can ever reach their goals without putting in the effort. Success doesn't come automatically, it takes dedication and perseverance.
+Creativity and originality are important, but they are not enough to achieve success. In the modern world of business, as David Ogilvy said, "it is useless to be a creative, original thinker unless you can also sell what you create". This means that we need to be able to market our ideas and skills in order to make them successful.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's not the strongest or the smartest that will be successful—it's the ones who have laser-like focus. As Bruce Lee famously said, “The successful warrior is the average man, with laser-like focus.” Having the right mindset, discipline, and determination can take us much farther than any talent or IQ.
+Take action and be proactive. As William B. Sprague said, “Do not wait to strike until the iron is hot; but make it hot by striking”. Don't be afraid to take risks and put in the work. If you want to succeed, you have to make it happen.
 
 <!-- </quote> -->
 

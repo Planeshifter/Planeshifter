@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Take action and be proactive. As William B. Sprague said, “Do not wait to strike until the iron is hot; but make it hot by striking”. Don't be afraid to take risks and put in the work. If you want to succeed, you have to make it happen.
+Adversity can make us stronger. As the Chinese proverb says, "The diamond cannot be polished without friction, nor the man perfected without trials." Difficult times help build our resilience and can lead to personal growth. To become the best version of ourselves, we must be willing to face our challenges head on.
 
 <!-- </quote> -->
 

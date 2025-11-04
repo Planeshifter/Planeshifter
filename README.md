@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Adversity can make us stronger. As the Chinese proverb says, "The diamond cannot be polished without friction, nor the man perfected without trials." Difficult times help build our resilience and can lead to personal growth. To become the best version of ourselves, we must be willing to face our challenges head on.
+Words have the power to create or destroy relationships. As John Rampton said: "You can say anything to anyone, but how you say it will determine how they will react". Whether we are talking to friends, family or colleagues, it's important to be mindful of how we communicate and to choose our words wisely.
 
 <!-- </quote> -->
 

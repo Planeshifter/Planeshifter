@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What's done must come to an end? Indeed! Or, as Solon said, "In all things that you do, consider the end." This quote encourages us to think critically about the long-term implications of our actions. Knowing the end goal of something helps us to make better decisions in the present. By considering the end, we can understand the entire trajectory of an action and how it might play out in the future. In our daily lives, this helps to ensure that we are making decisions that will benefit us in the long run and not simply making decisions that will bring us temporary satisfaction.
+We shouldn't be ostentatious about our wealth and possessions. As the Chinese proverb says: "When you go to buy, don't show your silver". It's best to be humble and prudent when it comes to money, as it will help you to stay grounded in the face of success.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all want to enjoy our lives and find a job where we can be passionate about. As Confucius said: "Find a job you love and you'll never work a day in your life". This means that if we find a job that we love and are passionate about, then every day will be an enjoyable experience.
+Life is too short to settle for anything less than your dreams. As Eliza Dushku said, “Go big, or go home”. Don’t be afraid to take risks and go after what you want. You’ll never know what is possible unless you try.
 
 <!-- </quote> -->
 

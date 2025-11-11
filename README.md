@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is too short to settle for anything less than your dreams. As Eliza Dushku said, “Go big, or go home”. Don’t be afraid to take risks and go after what you want. You’ll never know what is possible unless you try.
+What takes more effort to do, great things or commanding them? Commanding them. Or, as Friedrich Nietzsche said, “To do great things is difficult; but to command great things is more difficult.” This emphasizes the challenge of leading, rather than being led, and the importance of taking initiative and demonstrating strong leadership. This quote is important to me, as a personal trainer and self-help guru, because inspiring others to reach their potential requires a great deal of guidance, determination and hard work.
 
 <!-- </quote> -->
 

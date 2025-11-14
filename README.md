@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Sometimes, the hardest part of a task is knowing how to go about it. As Charles Steinmetz's invoice notes, the difference between success and failure often lies in the details. To create extraordinary results, we have to be willing to invest the time and energy needed to understand the nuances of the task. Without knowledge, our labour is often wasted.
+Death is a part of life and an inevitable reality that each of us will have to face. As Steve Jobs said, “Remembering you are going to die is the best way I know to avoid the trap of thinking you have something to lose." We should remember that life is short, and make the most of it by living it to the fullest.
 
 <!-- </quote> -->
 

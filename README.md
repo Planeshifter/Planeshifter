@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Death is a part of life and an inevitable reality that each of us will have to face. As Steve Jobs said, “Remembering you are going to die is the best way I know to avoid the trap of thinking you have something to lose." We should remember that life is short, and make the most of it by living it to the fullest.
+Dreams don't come true without hard work. Adam Horwitz understood this when he said: "All of my friends were doing babysitting jobs. I wanted money without the job." It takes dedication and perseverance to achieve success. We must be willing to put in the effort to make our dreams come true.
 
 <!-- </quote> -->
 

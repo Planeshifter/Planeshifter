@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Dreams don't come true without hard work. Adam Horwitz understood this when he said: "All of my friends were doing babysitting jobs. I wanted money without the job." It takes dedication and perseverance to achieve success. We must be willing to put in the effort to make our dreams come true.
+Being an entrepreneur is not an easy feat. As Ted Turner said, "My son is now an 'entrepreneur'. That's what you're called when you don't have a job". It might be tough, but it can be rewarding. It requires hard work, dedication, and the ability to take risks.
 
 <!-- </quote> -->
 

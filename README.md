@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What goes down must come up?  Yes! Or, as General George Patton said, "Success is how high you bounce after you hit bottom." This quote encourages us to focus on getting back up again after experiencing failure. It emphasizes the importance of resilience, and how it can be a powerful tool to help us reach our goals. This quote is important to me as it is a reminder that even when life knocks us down, we can always find a way to get back up and keep going. It encourages me to take each failure as an opportunity to learn and grow, and to never give up on my dreams.
+Competition is a part of life, but it's not for everyone. As the saying goes, "If you don’t have a competitive advantage ― don’t compete". It's not just about winning, but it's about setting yourself up for success by ensuring that you have the right resources and skills to be successful. Before entering a competition, it's important to make sure that you have an advantage that can help you stand out from the crowd.
 
 <!-- </quote> -->
 

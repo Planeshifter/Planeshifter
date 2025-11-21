@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Competition is a part of life, but it's not for everyone. As the saying goes, "If you don’t have a competitive advantage ― don’t compete". It's not just about winning, but it's about setting yourself up for success by ensuring that you have the right resources and skills to be successful. Before entering a competition, it's important to make sure that you have an advantage that can help you stand out from the crowd.
+Life is too short to live with regrets. As Mark Twain said "Twenty years from now, you will be more disappointed by the things that you didn’t do than by the ones you did do, so throw off the bowlines, sail away from safe harbor, catch the trade winds in your sails. Explore, Dream, Discover." We need to seize the moment and make the most of our lives.
 
 <!-- </quote> -->
 

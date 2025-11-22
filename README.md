@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is too short to live with regrets. As Mark Twain said "Twenty years from now, you will be more disappointed by the things that you didn’t do than by the ones you did do, so throw off the bowlines, sail away from safe harbor, catch the trade winds in your sails. Explore, Dream, Discover." We need to seize the moment and make the most of our lives.
+Knowledge is the key to success and education is the door. As the Chinese Proverb says, "Teachers open the door. You enter by yourself". No one can make your dreams come true for you, you have to take the initiative and do it yourself.
 
 <!-- </quote> -->
 

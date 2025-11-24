@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Hard work pays off, as Robert Frost said: "By working faithfully eight hours a day you may eventually get to be boss and work twelve hours a day". It takes dedication and effort to reach the top, and it's important to remember that success doesn't come overnight.
+We all have dreams and aspirations, but achieving them takes hard work and dedication. As Ryan Allis said, "Have the end in mind and every day make sure your working towards it". This means that we must focus on our goals and put in the effort each day to move closer to them. Taking consistent action is the only way to make your dreams come true.
 
 <!-- </quote> -->
 

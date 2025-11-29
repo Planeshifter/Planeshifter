@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Competition is a part of life, but it's not for everyone. As the saying goes, "If you don’t have a competitive advantage ― don’t compete". It's not just about winning, but it's about setting yourself up for success by ensuring that you have the right resources and skills to be successful. Before entering a competition, it's important to make sure that you have an advantage that can help you stand out from the crowd.
+Life is full of tough decisions, and as Timothy Ferriss advises, sometimes it's best to take the plunge and make a move, even if the timing isn't perfect. He said, "For all of the most important things, the timing always sucks. Waiting for a good time to quit your job? The stars will never align and the traffic lights of life will never all be green at the same time. The universe doesn’t conspire against you, but it doesn’t go out of its way to line up the pins either." Don't be tempted to procrastinate, if something is important to you, take the plunge and start now.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is full of tough decisions, and as Timothy Ferriss advises, sometimes it's best to take the plunge and make a move, even if the timing isn't perfect. He said, "For all of the most important things, the timing always sucks. Waiting for a good time to quit your job? The stars will never align and the traffic lights of life will never all be green at the same time. The universe doesn’t conspire against you, but it doesn’t go out of its way to line up the pins either." Don't be tempted to procrastinate, if something is important to you, take the plunge and start now.
+When it comes to life, it pays to be daring. As the anonymous quote says, “If you’re not living life on the edge, you’re taking up too much space.” Taking risks might be uncomfortable, but it’s essential for growth. Without pushing our boundaries, we won’t be able to reach our full potential.
 
 <!-- </quote> -->
 

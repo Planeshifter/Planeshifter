@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-When it comes to life, it pays to be daring. As the anonymous quote says, “If you’re not living life on the edge, you’re taking up too much space.” Taking risks might be uncomfortable, but it’s essential for growth. Without pushing our boundaries, we won’t be able to reach our full potential.
+If you want to succeed, you need to focus on the things that do work. As Michael Dunlop said: “You’ve got to stop doing all the things that people have tried, tested, and found out don’t work.” To be successful, you need to know what works and what doesn't and focus on the things that do.
 
 <!-- </quote> -->
 

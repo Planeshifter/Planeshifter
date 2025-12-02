@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-If you want to succeed, you need to focus on the things that do work. As Michael Dunlop said: “You’ve got to stop doing all the things that people have tried, tested, and found out don’t work.” To be successful, you need to know what works and what doesn't and focus on the things that do.
+Life is full of risks and taking risks means making mistakes. As Jeff Clavier said: "If we don’t allow ourselves to make mistakes, we will never invest in things that are radical." We must embrace the fear of failure in order to achieve success. Taking risks can be scary but can also be rewarding.
 
 <!-- </quote> -->
 

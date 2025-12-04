@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Making your dreams come true takes a lot of hard work and dedication. As Nolan Bushnell said: "The critical ingredient is getting off your butt and doing something." Having an idea is easy, but it's only when you decide to take action and do something that your dreams become reality. Taking the first step is hard, but it's the only way to make progress. So don't waste time and start today!
+When is the best time to act? When the time is right. Or, as Andrew Jackson said, "Take time to deliberate; but when the time for action arrives, stop thinking and go in." This quote means that it is important to take time for careful consideration of a situation before making a decision, but when the time for action has come, it is best to stop worrying and move forward with confidence. This quote is important to me because it helps to remind me to weigh the pros and cons of any decision before taking action, but also to trust my instincts and act with purpose when the time is right.
 
 <!-- </quote> -->
 

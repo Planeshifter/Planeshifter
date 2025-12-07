@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Dreaming big is essential for success. As Donald Trump said: "As long as you're going to be thinking anyway, think big." Having a larger-than-life vision is the starting point of reaching our goals. We must be willing to take risks and think outside the box to make our dreams a reality.
+What does it take to be wise? Hard work and dedication. Or, as Seneca said, "No man was ever wise by chance." This quote encourages us to take ownership of our development, and to recognize that wisdom takes effort. This quote is relevant to our daily lives because it reminds us that we must be willing to put in the effort if we want to realize our fullest potential.
 
 <!-- </quote> -->
 

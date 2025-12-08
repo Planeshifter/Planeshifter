@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What does it take to be wise? Hard work and dedication. Or, as Seneca said, "No man was ever wise by chance." This quote encourages us to take ownership of our development, and to recognize that wisdom takes effort. This quote is relevant to our daily lives because it reminds us that we must be willing to put in the effort if we want to realize our fullest potential.
+What's the simplest way to get ahead? Do something now. Or, as Nolan Bushnell said, "The critical ingredient is getting off your butt and doing something. It’s as simple as that. A lot of people have ideas, but there are few who decide to do something about them now. Not tomorrow. Not next week. But today. The true entrepreneur is a doer, not a dreamer." This quote stresses the importance of taking action in order to make progress and achieve success. In life, it is not enough to simply have an idea - we must have the courage and determination to take the necessary steps to make it happen. Only by actually doing something can we turn our dreams into reality.
 
 <!-- </quote> -->
 

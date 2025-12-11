@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What's the best way to avoid disappointment? Determine to succeed. Or, as Richard Brinsley Sheridan said, "The surest way not to fail is to determine to succeed." This quote encourages us to have a strong, motivated mindset when facing challenges. It reminds us that by taking action and committing ourselves to our goals, we can achieve success. The quote is important because it helps us to create a positive attitude and take proactive steps towards meeting our goals.
+As Grace Hopper said, “It’s easier to ask forgiveness than it is to get permission.” This quote reflects the importance of taking initiative and taking risks. It's often easier to look for forgiveness after making a mistake rather than seeking permission beforehand. We should be willing to take risks and accept the consequences.
 
 <!-- </quote> -->
 

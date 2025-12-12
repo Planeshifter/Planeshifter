@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-As Grace Hopper said, “It’s easier to ask forgiveness than it is to get permission.” This quote reflects the importance of taking initiative and taking risks. It's often easier to look for forgiveness after making a mistake rather than seeking permission beforehand. We should be willing to take risks and accept the consequences.
+Why worry about the future, when today brings enough trouble? Because worrying about the future only adds to our misery. Or, as Seneca said, "The mind that is anxious about future events is miserable." This quote serves as a reminder to live in the present and enjoy the moments instead of worrying about the future. It is important to be mindful of this in our daily life because worrying about events that may or may not happen only adds to our stress and unhappiness, which in turn will negatively affect our health, relationships, and other aspects of life.
 
 <!-- </quote> -->
 

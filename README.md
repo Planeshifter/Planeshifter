@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Make sure to never let self doubt stand in your way. As Theodore Roosevelt said: "Whenever you are asked if you can do a job, tell 'em, 'Certainly, I can!' Then get busy and find out how to do it." It's always important to have a positive attitude and never give up on achieving your goals.
+We live in an age of opportunity, but it’s up to us to make the most of it. As Seth Godin said: "There’s no shortage of remarkable ideas, what’s missing is the will to execute them." We need to be bold and brave in order to make our dreams a reality.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What can't you rely on when your dreams are blurry? Your sight. Or, as Mark Twain said, "You cannot depend on your eyes when your imagination is out of focus." This quote encourages us to pay attention to our mental clarity and focus in order to properly use our vision. Imagination is an invaluable tool for life, so it is important to ensure it is working correctly in order to make the most of our eyes. It is essential to stay sharp and focused on our goals so that we can use our eyes to help us identify and reach them.
+What did Thomas Edison do to succeed? He failed. Or, as Thomas Edison said, "I failed my way to success". This quote reminds us that success does not come without hard work and failure, and that it is important to learn from mistakes and keep trying. In our daily lives, we must have the courage to try new things, take risks, and learn from our mistakes in order to reach our goals.
 
 <!-- </quote> -->
 

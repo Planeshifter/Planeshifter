@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What did Thomas Edison do to succeed? He failed. Or, as Thomas Edison said, "I failed my way to success". This quote reminds us that success does not come without hard work and failure, and that it is important to learn from mistakes and keep trying. In our daily lives, we must have the courage to try new things, take risks, and learn from our mistakes in order to reach our goals.
+Success is about more than just making money. As Winston Churchill said, "We make a living by what we get, but we make a life by what we give." By making a difference in someone else's life or by helping out in our community, we can create a meaningful, impactful life.
 
 <!-- </quote> -->
 

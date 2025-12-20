@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is about more than just making money. As Winston Churchill said, "We make a living by what we get, but we make a life by what we give." By making a difference in someone else's life or by helping out in our community, we can create a meaningful, impactful life.
+Achieving success isn't easy, but it is achievable. As the Chinese proverb says, "A journey of a thousand miles begins with a single step." It's important to stay focused on the end goal and taking one step at a time. We can't expect immediate results, but with hard work and dedication, we can get closer to achieving our dreams.
 
 <!-- </quote> -->
 

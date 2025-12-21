@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Achieving success isn't easy, but it is achievable. As the Chinese proverb says, "A journey of a thousand miles begins with a single step." It's important to stay focused on the end goal and taking one step at a time. We can't expect immediate results, but with hard work and dedication, we can get closer to achieving our dreams.
+Success isn't always about being the best for everyone. According to Ron Shaich, founder and CEO of Panera Bread, “If you can do something to get somebody excited — not everybody — but if you can be the best for somebody, then you can win.” This means that if you focus on being the best for the people who matter, you will be successful.
 
 <!-- </quote> -->
 

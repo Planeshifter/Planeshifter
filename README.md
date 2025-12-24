@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-To achieve success, there are certain rules to follow. As Roger H. Lincoln said: "There are two rules for success. 1) Never tell everything you know". Knowing when to be silent is a key part of succeeding. We have to be confident and wise when we share our knowledge.
+Life is full of risks and opportunities. As Wayne Gretzky said: "You miss 100 percent of the shots you don’t take". We can't be afraid of the unknown or the chance of failure. Taking the plunge can lead to great rewards and lead us to success.
 
 <!-- </quote> -->
 

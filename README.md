@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is full of risks and opportunities. As Wayne Gretzky said: "You miss 100 percent of the shots you don’t take". We can't be afraid of the unknown or the chance of failure. Taking the plunge can lead to great rewards and lead us to success.
+Being spineless is not a quality to be admired. As Stanislaw Lem said, "Cannibals prefer those who have no spines." We should never sacrifice our beliefs and principles in order to get ahead. Standing up for what we believe in is essential to leading a fulfilling and successful life.
 
 <!-- </quote> -->
 

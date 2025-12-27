@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What percentage do you have to take to get it right? You have to take at least one shot to have any chance of success. Or, as Wayne Gretzky said, "You miss 100 percent of the shots you don't take." This quote is a reminder to take action and take risks if you want to achieve something. It emphasizes the idea of not giving up, even if the odds seem slim. This relates to my daily life because it encourages me to take the necessary steps to reach my goals, instead of giving up too soon or not taking any action at all.
+Nobody is perfect. As William Rosenberg, founder of Dunkin' Donuts said: "Show me a person who never made a mistake, and I will show you a person who never did anything". Mistakes are a part of life and there's no reason to fear them. It's important to learn from our mistakes and keep moving forward.
 
 <!-- </quote> -->
 

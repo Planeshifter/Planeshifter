@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Nobody is perfect. As William Rosenberg, founder of Dunkin' Donuts said: "Show me a person who never made a mistake, and I will show you a person who never did anything". Mistakes are a part of life and there's no reason to fear them. It's important to learn from our mistakes and keep moving forward.
+What is more important, the journey or the destination? The journey. Or, as Richard Monckton Milnes said, "The virtue lies in the struggle, not in the prize." This quote highlights the importance of the journey one takes to reach their goals, rather than focusing solely on the end result. We can't forget the process of getting there and the learning experiences, relationships, and personal growth that come with the struggle. Applying this to our daily life, it’s important to stay mindful and be present throughout our journey in achieving our goals, rather than just focusing on the end result of success.
 
 <!-- </quote> -->
 

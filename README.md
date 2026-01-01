@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-The best way to attain success is to trust yourself. As Ben Silbermann, co-founder of Pinterest said: "Don’t take too much advice. Most people who have a lot of advice to give... Just build things and find out if they work." We should take risks, act with confidence and not overthink every decision. That’s how innovation and genuine progress will take place.
+Jay-Z's famous quote "I'm not a businessman — I'm a business, man" reminds us of the importance of self-empowerment and independence. It implies that we should take charge of our own destiny and be responsible for our own success. It also encourages us to use our resources and leverage our opportunities to our advantage. With determination and hard work, we can all achieve our goals.
 
 <!-- </quote> -->
 

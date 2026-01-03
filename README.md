@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is often a result of hard work and determination. As Zig Ziglar said: "One can get anything if he is willing to help enough others get what they want." We can't expect to achieve our goals if we don't first contribute to the success of others. By taking the time to help and support others, we create an environment of collaboration and cooperation that ultimately benefits us all.
+Can you lead without compromise? Yes. Or, as Woodrow Wilson said, "Leadership does not always wear the harness of compromise." Leadership is about making decisions and standing by them, and that often means not compromising. Compromise is sometimes necessary, but not always. This quote helps to remind us that when it comes to our decisions, we should be brave and decisive, and not be afraid to stand by our convictions. In our daily lives, this quote is important as it shows us that we must have the courage to make our own decisions and not be scared of the consequences.
 
 <!-- </quote> -->
 

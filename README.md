@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Can you lead without compromise? Yes. Or, as Woodrow Wilson said, "Leadership does not always wear the harness of compromise." Leadership is about making decisions and standing by them, and that often means not compromising. Compromise is sometimes necessary, but not always. This quote helps to remind us that when it comes to our decisions, we should be brave and decisive, and not be afraid to stand by our convictions. In our daily lives, this quote is important as it shows us that we must have the courage to make our own decisions and not be scared of the consequences.
+Sometimes we need to be bold and push the boundaries in order to reach success. As the Unknown says: "If you ain't making waves, you ain't kickin' hard enough". We must take risks and be willing to go against the grain in order to reach our goals. So never be afraid to make a splash!
 
 <!-- </quote> -->
 

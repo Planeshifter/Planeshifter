@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Sometimes we need to be bold and push the boundaries in order to reach success. As the Unknown says: "If you ain't making waves, you ain't kickin' hard enough". We must take risks and be willing to go against the grain in order to reach our goals. So never be afraid to make a splash!
+Thomas Edison said it best: "Opportunity is missed by most people because it is dressed in overalls and looks like work." Too often, we miss out on our greatest achievements because we're not willing to put in the hard work to get there. But with the right attitude and determination, success is within our reach.
 
 <!-- </quote> -->
 

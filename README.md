@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Thomas Edison said it best: "Opportunity is missed by most people because it is dressed in overalls and looks like work." Too often, we miss out on our greatest achievements because we're not willing to put in the hard work to get there. But with the right attitude and determination, success is within our reach.
+Life is a precious gift that we must learn to cherish and appreciate. As Sid Caesar said: "In between goals is a thing called life, that has to be lived and enjoyed". We must take the time to enjoy the moments and appreciate the journey, not just the destination.
 
 <!-- </quote> -->
 

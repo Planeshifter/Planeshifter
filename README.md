@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is a precious gift that we must learn to cherish and appreciate. As Sid Caesar said: "In between goals is a thing called life, that has to be lived and enjoyed". We must take the time to enjoy the moments and appreciate the journey, not just the destination.
+Making mistakes is part of life, and it is how we learn and grow. As John C. Maxwell said: "A man must be big enough to admit his mistakes, smart enough to profit from them, and strong enough to correct them." It takes courage to recognize our mistakes and even more courage to accept responsibility and make changes. It is a sign of strength, not weakness.
 
 <!-- </quote> -->
 

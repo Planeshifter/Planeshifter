@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Making mistakes is part of life, and it is how we learn and grow. As John C. Maxwell said: "A man must be big enough to admit his mistakes, smart enough to profit from them, and strong enough to correct them." It takes courage to recognize our mistakes and even more courage to accept responsibility and make changes. It is a sign of strength, not weakness.
+Don't be afraid to take the first step towards achieving your goals. As Kevin Systrom says: "If you’ve got an idea, start today. There’s no better time than now to get going". Even if you can't start working on your idea full-time, you can always make small progress and start the movement. Every journey begins with a single step.
 
 <!-- </quote> -->
 

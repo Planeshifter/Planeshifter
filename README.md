@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Don't be afraid to take the first step towards achieving your goals. As Kevin Systrom says: "If you’ve got an idea, start today. There’s no better time than now to get going". Even if you can't start working on your idea full-time, you can always make small progress and start the movement. Every journey begins with a single step.
+Sometimes we can't undo the opportunities missed in the past. As the Chinese proverb states: "The best time to plant a tree is twenty years ago. The second best time is now." We must make the most of our current situation and take advantage of the opportunities in front of us.
 
 <!-- </quote> -->
 

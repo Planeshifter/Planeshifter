@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Sometimes we can't undo the opportunities missed in the past. As the Chinese proverb states: "The best time to plant a tree is twenty years ago. The second best time is now." We must make the most of our current situation and take advantage of the opportunities in front of us.
+As Jim Rohn said, "Formal education will make you a living, but self education will make you a fortune". It's important to remember that while formal education is essential, it's not the only way to learn and grow. Self-education, research and learning from experience can be just as valuable.
 
 <!-- </quote> -->
 

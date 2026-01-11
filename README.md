@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-As Jim Rohn said, "Formal education will make you a living, but self education will make you a fortune". It's important to remember that while formal education is essential, it's not the only way to learn and grow. Self-education, research and learning from experience can be just as valuable.
+What kind of leader accelerates growth? A great one! Or, as John C. Maxwell said, "While a good leader sustains momentum, a great leader increases it." This quote speaks to the importance of strong and effective leadership in any organization. Great leaders can help make their teams more productive, efficient, and successful. The same is true in our personal lives; having the right kind of leader can help us reach our own goals and dreams more quickly.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What kind of leader accelerates growth? A great one! Or, as John C. Maxwell said, "While a good leader sustains momentum, a great leader increases it." This quote speaks to the importance of strong and effective leadership in any organization. Great leaders can help make their teams more productive, efficient, and successful. The same is true in our personal lives; having the right kind of leader can help us reach our own goals and dreams more quickly.
+What's the result of failing? Success. Or, as Marian Wright Edelman said, "Failure is just another way to learn how to do something right." This quote reminds us that failure is merely a learning opportunity and not necessarily an endpoint. It's important to recognize that mistakes and failures can be seen in a positive light, as they offer an opportunity to learn and grow. This applies to life in general and can help individuals stay motivated and continue to strive for improvement.
 
 <!-- </quote> -->
 

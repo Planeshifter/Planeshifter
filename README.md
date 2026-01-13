@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What's the result of failing? Success. Or, as Marian Wright Edelman said, "Failure is just another way to learn how to do something right." This quote reminds us that failure is merely a learning opportunity and not necessarily an endpoint. It's important to recognize that mistakes and failures can be seen in a positive light, as they offer an opportunity to learn and grow. This applies to life in general and can help individuals stay motivated and continue to strive for improvement.
+Success comes from taking action. As William B. Sprague said "Do not wait to strike until the iron is hot; but make it hot by striking". We shouldn't be waiting for the perfect moment, rather, we should create our own opportunities. The only way to achieve something is to take action and work for it.
 
 <!-- </quote> -->
 

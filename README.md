@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success comes from taking action. As William B. Sprague said "Do not wait to strike until the iron is hot; but make it hot by striking". We shouldn't be waiting for the perfect moment, rather, we should create our own opportunities. The only way to achieve something is to take action and work for it.
+Success is not simply a matter of luck. As Earl Wilson said: "Success is simply a matter of luck. Ask any failure." Sure, there are many fortunate events that can play a role in our achievements, but it takes hard work, persistence and dedication to get to the top.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is not simply a matter of luck. As Earl Wilson said: "Success is simply a matter of luck. Ask any failure." Sure, there are many fortunate events that can play a role in our achievements, but it takes hard work, persistence and dedication to get to the top.
+You can't always get what you want. As the Chinese proverb says: "All cats love fish but fear to wet their paws". We may be tempted by something, but if it means taking a risk, we may be more cautious. We need to be brave and take a chance if we want to achieve our goals.
 
 <!-- </quote> -->
 

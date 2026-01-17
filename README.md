@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What do wise men and fools have in common? They both learn from experience. Or, as a Latin proverb said, “A wise man learns by the mistakes of others, a fool by his own.” This proverb is reminding us that it is often wiser to learn from the mistakes of others rather than making our own. This is important to you because it is often a less costly option to learn from the mistakes of those around you instead of having to face the consequences of making your own mistakes.
+Sometimes it takes a hard fall to learn a lesson. As the Chinese proverb says: "A fall into a ditch makes you wiser". We may not realize it at the time, but mistakes can actually lead to valuable insights and wisdom. We just have to be willing to look at the situation differently and learn from it.
 
 <!-- </quote> -->
 

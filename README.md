@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Sometimes it takes a hard fall to learn a lesson. As the Chinese proverb says: "A fall into a ditch makes you wiser". We may not realize it at the time, but mistakes can actually lead to valuable insights and wisdom. We just have to be willing to look at the situation differently and learn from it.
+The best way to become the person you want to be is to surround yourself with the people you want to emulate. As Reid Hoffman said: "The fastest way to change yourself is to hang out with people who are already the way you want to be." By surrounding ourselves with people who have the qualities we want, we can gain the inspiration, knowledge, and support we need to reach our goals.
 
 <!-- </quote> -->
 

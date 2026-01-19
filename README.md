@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-The best way to become the person you want to be is to surround yourself with the people you want to emulate. As Reid Hoffman said: "The fastest way to change yourself is to hang out with people who are already the way you want to be." By surrounding ourselves with people who have the qualities we want, we can gain the inspiration, knowledge, and support we need to reach our goals.
+How do you move forward in life? The best way is through it. Or, as Robert Frost said, "The best way out is always through." This means that it is better to confront your challenges and work through them than to go around them. This quote relates to my daily life by reminding me to take on any obstacles that come my way and trust that I have the perseverance to persevere and make it through.
 
 <!-- </quote> -->
 

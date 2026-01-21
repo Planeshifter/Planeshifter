@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all need a break from time to time, but if you're living for the weekend or your next vacation, your life is not in balance. As Gary Vaynerchuk said: "If you live for weekends or vacations, your shit is broken". Life is about finding joy and fulfillment in everyday moments, not just the special ones.
+Social media has become an important tool for connecting with others. As Matthew Inman said, “building and hanging on to an audience is the biggest role of social media.”We must use it in a way that builds and nurtures relationships, creating strong networks that support our goals.
 
 <!-- </quote> -->
 

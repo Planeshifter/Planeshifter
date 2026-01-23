@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What comes first, commitment or action? Commitment comes first. Or, as Marcia Wieder said, "Commitment leads to action. Action brings your dream closer." This quote encourages us to take responsibility and make a commitment to our goals before we take action. When we make a conscious commitment to our dreams, we are more likely to put in the work and effort it takes to make those dreams come true. This is important to our daily lives because it allows us to create a path to success and keep ourselves motivated.
+Having the right strategy and mindset is key for long-term success. As the old saying goes, “It’s better to own the racecourse than the racehorse”. This means you should focus on building a strong foundation for success and make sure you have the proper tools and resources to reach your goals. This way, you will have a better chance of achieving your dreams.
 
 <!-- </quote> -->
 

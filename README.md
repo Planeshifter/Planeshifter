@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Having the right strategy and mindset is key for long-term success. As the old saying goes, “It’s better to own the racecourse than the racehorse”. This means you should focus on building a strong foundation for success and make sure you have the proper tools and resources to reach your goals. This way, you will have a better chance of achieving your dreams.
+Education is key to success, but it doesn't have to be a formal process. As Mitch Hedberg said: “I didn’t go to college, but if I did, I would’ve taken all my tests at a restaurant, ’cause ‘The customer is always right.’” This quote teaches us that we can gain knowledge from any environment, as long as we approach it with an open mind and a willingness to learn.
 
 <!-- </quote> -->
 

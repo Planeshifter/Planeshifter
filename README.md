@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Words have the power to create or destroy relationships. As John Rampton said: "You can say anything to anyone, but how you say it will determine how they will react". Whether we are talking to friends, family or colleagues, it's important to be mindful of how we communicate and to choose our words wisely.
+It's easy to get caught up in the end goal or finish line when it comes to achieving success. However, as Steve Wozniak reminds us, it's important to focus on each step in the journey and to give each task your best effort. When we do this, we can trust the process and have faith that the outcome will be rewarding.
 
 <!-- </quote> -->
 

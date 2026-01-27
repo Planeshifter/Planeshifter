@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's easy to get caught up in the end goal or finish line when it comes to achieving success. However, as Steve Wozniak reminds us, it's important to focus on each step in the journey and to give each task your best effort. When we do this, we can trust the process and have faith that the outcome will be rewarding.
+What percentage do you have to take to get it right? You have to take at least one shot to have any chance of success. Or, as Wayne Gretzky said, "You miss 100 percent of the shots you don't take." This quote is a reminder to take action and take risks if you want to achieve something. It emphasizes the idea of not giving up, even if the odds seem slim. This relates to my daily life because it encourages me to take the necessary steps to reach my goals, instead of giving up too soon or not taking any action at all.
 
 <!-- </quote> -->
 

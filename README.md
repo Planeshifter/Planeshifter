@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Making mistakes is part of life, and it is how we learn and grow. As John C. Maxwell said: "A man must be big enough to admit his mistakes, smart enough to profit from them, and strong enough to correct them." It takes courage to recognize our mistakes and even more courage to accept responsibility and make changes. It is a sign of strength, not weakness.
+What teaches us more than books? Years. Or, as Berthold Auerbach said, "Years teach us more than books." This quote emphasizes the importance of experience in learning, which is not limited to books. It is related to our daily life because it encourages us to learn through experience rather than just relying on books; we can gain knowledge and wisdom from our own experiences.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What teaches us more than books? Years. Or, as Berthold Auerbach said, "Years teach us more than books." This quote emphasizes the importance of experience in learning, which is not limited to books. It is related to our daily life because it encourages us to learn through experience rather than just relying on books; we can gain knowledge and wisdom from our own experiences.
+It's true that success begets success. As Tony Robbins put it: "People who succeed have momentum. The more they succeed, the more they want to succeed, and the more they find a way to succeed". The opposite is also true: if you're constantly failing, it can become a self-fulfilling prophecy. The key is to stay positive and keep trying despite the setbacks.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's true that success begets success. As Tony Robbins put it: "People who succeed have momentum. The more they succeed, the more they want to succeed, and the more they find a way to succeed". The opposite is also true: if you're constantly failing, it can become a self-fulfilling prophecy. The key is to stay positive and keep trying despite the setbacks.
+Why take a chance when you can stay safe? To live a fulfilling life. Or, as Ilka Chase said, "The only people who never fail are those who never try." This highlights the importance of taking risks and trying new things in order to succeed and grow. This quote is important to me because it reminds me to take risks and try new things in order to discover more about myself and the world around me.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Why take a chance when you can stay safe? To live a fulfilling life. Or, as Ilka Chase said, "The only people who never fail are those who never try." This highlights the importance of taking risks and trying new things in order to succeed and grow. This quote is important to me because it reminds me to take risks and try new things in order to discover more about myself and the world around me.
+Sometimes, the biggest success comes after the biggest failure. As Napoleon Hill said: "Most great people have attained their greatest success just one step beyond their greatest failure". This means that failure is often a part of the process in achieving success, and we should use it as a learning opportunity to keep moving forward.
 
 <!-- </quote> -->
 

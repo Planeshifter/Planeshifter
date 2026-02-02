@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Sometimes, the biggest success comes after the biggest failure. As Napoleon Hill said: "Most great people have attained their greatest success just one step beyond their greatest failure". This means that failure is often a part of the process in achieving success, and we should use it as a learning opportunity to keep moving forward.
+Death is a part of life and an inevitable reality that each of us will have to face. As Steve Jobs said, “Remembering you are going to die is the best way I know to avoid the trap of thinking you have something to lose." We should remember that life is short, and make the most of it by living it to the fullest.
 
 <!-- </quote> -->
 

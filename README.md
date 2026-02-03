@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Death is a part of life and an inevitable reality that each of us will have to face. As Steve Jobs said, “Remembering you are going to die is the best way I know to avoid the trap of thinking you have something to lose." We should remember that life is short, and make the most of it by living it to the fullest.
+It's hard to believe that only one company holds a monopoly over the popular board game Monopoly. As Steven Wright said, this goes against the spirit of free competition and business. The game is enjoyed around the world and it's unfair that one company controls the market, depriving other companies from having a chance to succeed.
 
 <!-- </quote> -->
 

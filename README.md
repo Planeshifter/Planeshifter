@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's hard to believe that only one company holds a monopoly over the popular board game Monopoly. As Steven Wright said, this goes against the spirit of free competition and business. The game is enjoyed around the world and it's unfair that one company controls the market, depriving other companies from having a chance to succeed.
+Having a vision is not enough if we don't take any action. As the Japanese proverb says, “Vision without action is a daydream. Action without vision is a nightmare.” If we don't have a clear plan and direction, our actions will be misguided and we will never reach our goals.
 
 <!-- </quote> -->
 

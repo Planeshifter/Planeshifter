@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Having a vision is not enough if we don't take any action. As the Japanese proverb says, “Vision without action is a daydream. Action without vision is a nightmare.” If we don't have a clear plan and direction, our actions will be misguided and we will never reach our goals.
+Success doesn't come easy. As Thomas Edison said: "I have not failed. I've just found 10,000 ways that won't work". This quote reminds us that we should never give up no matter how many times we fail. Mistakes can be valuable learning experiences that help us to find the right path towards our goals.
 
 <!-- </quote> -->
 

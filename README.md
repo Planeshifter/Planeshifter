@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Where can we find the sacred? In our daily life, in our friends, family, and even our own backyard. Or, as Abraham Maslow said, "The great lesson is that the sacred is in the ordinary, that it is to be found in one's daily life, in one's neighbors, friends and family, in one's backyard." This quote encourages us to recognize the beauty, joy, and peace that exists all around us, in the ordinary moments of our lives. This is important because it can remind us to take a step back from our busy lives and appreciate the people, places, and things that make our lives meaningful.
+It's not the strongest or the smartest that will be successful—it's the ones who have laser-like focus. As Bruce Lee famously said, “The successful warrior is the average man, with laser-like focus.” Having the right mindset, discipline, and determination can take us much farther than any talent or IQ.
 
 <!-- </quote> -->
 

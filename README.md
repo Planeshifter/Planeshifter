@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's not the strongest or the smartest that will be successful—it's the ones who have laser-like focus. As Bruce Lee famously said, “The successful warrior is the average man, with laser-like focus.” Having the right mindset, discipline, and determination can take us much farther than any talent or IQ.
+What is the only way to find true happiness? By realizing that we have achieved something. Or, as Henry Ford said, "There is no happiness except in the realization that we have accomplished something." This quote reminds us to actively pursue our goals and to appreciate the moments when we do accomplish something, as that type of happiness is one of the greatest forms of satisfaction. The quote is important in our lives because it reminds us to take ownership of our lives and to take pride in our accomplishments, which can lead to greater satisfaction and overall happiness.
 
 <!-- </quote> -->
 

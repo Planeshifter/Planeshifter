@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Where can we find the sacred? In our daily life, in our friends, family, and even our own backyard. Or, as Abraham Maslow said, "The great lesson is that the sacred is in the ordinary, that it is to be found in one's daily life, in one's neighbors, friends and family, in one's backyard." This quote encourages us to recognize the beauty, joy, and peace that exists all around us, in the ordinary moments of our lives. This is important because it can remind us to take a step back from our busy lives and appreciate the people, places, and things that make our lives meaningful.
+We all want to achieve success, but it's often easier said than done. As Howard Schultz said: "Risk more than others think is safe. Dream more than others think is practical." It's a difficult balance, but it's essential to reach our goals. Take risks, dare to dream and don't be afraid to reach for the stars.
 
 <!-- </quote> -->
 

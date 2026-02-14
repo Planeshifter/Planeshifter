@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Dreams don't just come true; we have to take action to make them happen. As the Chinese Proverb goes: "Don’t stand by the water and long for fish; go home and weave a net." Taking the initiative and being proactive are essential in achieving success.
+Success requires hard work. As Maya Angelou said: "Nothing will work unless you do". We can't expect that things will just fall into place without any effort. We need to take action, be determined and keep pushing forward in order to reach our goals.
 
 <!-- </quote> -->
 

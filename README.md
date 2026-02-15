@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success requires hard work. As Maya Angelou said: "Nothing will work unless you do". We can't expect that things will just fall into place without any effort. We need to take action, be determined and keep pushing forward in order to reach our goals.
+Failure is not the end. As Thomas Edison said, "If I find 10,000 ways something won’t work, I haven’t failed. I am not discouraged, because every wrong attempt discarded is often a step forward." We can learn from our mistakes and use the knowledge to take one step closer to success.
 
 <!-- </quote> -->
 

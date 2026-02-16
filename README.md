@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Failure is not the end. As Thomas Edison said, "If I find 10,000 ways something won’t work, I haven’t failed. I am not discouraged, because every wrong attempt discarded is often a step forward." We can learn from our mistakes and use the knowledge to take one step closer to success.
+Life is full of tough decisions, and as Timothy Ferriss advises, sometimes it's best to take the plunge and make a move, even if the timing isn't perfect. He said, "For all of the most important things, the timing always sucks. Waiting for a good time to quit your job? The stars will never align and the traffic lights of life will never all be green at the same time. The universe doesn’t conspire against you, but it doesn’t go out of its way to line up the pins either." Don't be tempted to procrastinate, if something is important to you, take the plunge and start now.
 
 <!-- </quote> -->
 

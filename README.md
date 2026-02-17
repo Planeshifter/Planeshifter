@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is full of tough decisions, and as Timothy Ferriss advises, sometimes it's best to take the plunge and make a move, even if the timing isn't perfect. He said, "For all of the most important things, the timing always sucks. Waiting for a good time to quit your job? The stars will never align and the traffic lights of life will never all be green at the same time. The universe doesn’t conspire against you, but it doesn’t go out of its way to line up the pins either." Don't be tempted to procrastinate, if something is important to you, take the plunge and start now.
+Success is often a matter of timing and discretion. Chris Dixon, co-founder of Hunch, said: "Get big quietly, so you don’t tip off potential competitors". Taking a slow and steady approach to growth is key to staying ahead in the game and avoiding unwanted attention.
 
 <!-- </quote> -->
 

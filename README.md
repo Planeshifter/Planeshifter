@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is often a matter of timing and discretion. Chris Dixon, co-founder of Hunch, said: "Get big quietly, so you don’t tip off potential competitors". Taking a slow and steady approach to growth is key to staying ahead in the game and avoiding unwanted attention.
+What's the best way to get to happiness? By traveling in a happy manner! Or, as Margaret Lee Runbeck said, "Happiness is not a state to arrive at, but a manner of traveling." This quote encourages us to find joy in our journey and to be mindful of the present moment. This quote relates to our daily life in that it reminds us to live in the moment and appreciate the decisions we make during our journey, which can lead us to a more fulfilling and content life.
 
 <!-- </quote> -->
 

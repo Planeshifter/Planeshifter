@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is success's opposite? Failure. Or, as Napoleon Hill said, "Every failure brings with it the seed of an equivalent success". This suggests that failure is not the end, but instead an opportunity for growth. This is applicable to everyday life because it encourages us to take risks, stay resilient, and not be discouraged by our failures, but instead learn from them and use them to strive for success.
+The best way to become the person you want to be is to surround yourself with the people you want to emulate. As Reid Hoffman said: "The fastest way to change yourself is to hang out with people who are already the way you want to be." By surrounding ourselves with people who have the qualities we want, we can gain the inspiration, knowledge, and support we need to reach our goals.
 
 <!-- </quote> -->
 

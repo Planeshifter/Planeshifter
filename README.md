@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-The best way to become the person you want to be is to surround yourself with the people you want to emulate. As Reid Hoffman said: "The fastest way to change yourself is to hang out with people who are already the way you want to be." By surrounding ourselves with people who have the qualities we want, we can gain the inspiration, knowledge, and support we need to reach our goals.
+We should never rely too much on our plans. As Dwight D. Eisenhower said: "In preparing for battle I have always found that plans are useless, but planning is indispensable". Even if plans can fail, the process of planning will help us prepare for any eventuality.
 
 <!-- </quote> -->
 

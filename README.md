@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We should never rely too much on our plans. As Dwight D. Eisenhower said: "In preparing for battle I have always found that plans are useless, but planning is indispensable". Even if plans can fail, the process of planning will help us prepare for any eventuality.
+As the old saying goes, "If at first you don't succeed, try, try again." This is the sentiment behind the quote by Reid Hoffman, "Nine out of ten businesses fail; so I came up with a foolproof plan ― create ten businesses." The idea of creating multiple businesses is an excellent one - if one fails, you may still have other ventures to fall back on. With hard work and dedication, the odds of success increase. Quote: “It’s not who you are that holds you back, it’s who you think you’re not.” ― Denis Waitley
 
 <!-- </quote> -->
 

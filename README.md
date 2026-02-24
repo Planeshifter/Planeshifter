@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We should never rely too much on our plans. As Dwight D. Eisenhower said: "In preparing for battle I have always found that plans are useless, but planning is indispensable". Even if plans can fail, the process of planning will help us prepare for any eventuality.
+No matter how hard life knocks you down, never give up. As General George Patton said: "Success is how high you bounce after you hit bottom". Even when you are at your lowest, there is always the possibility to come back and make something out of yourself. Don't give up on your dreams and always strive for better.
 
 <!-- </quote> -->
 

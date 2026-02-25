@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No matter how hard life knocks you down, never give up. As General George Patton said: "Success is how high you bounce after you hit bottom". Even when you are at your lowest, there is always the possibility to come back and make something out of yourself. Don't give up on your dreams and always strive for better.
+The old Chinese proverb is true: “Failing to plan is planning to fail.” Without proper planning, it's impossible to achieve success. We need to set goals and create a roadmap to get there. This will give us the structure and direction needed to achieve our desired outcomes.
 
 <!-- </quote> -->
 

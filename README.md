@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-The old Chinese proverb is true: “Failing to plan is planning to fail.” Without proper planning, it's impossible to achieve success. We need to set goals and create a roadmap to get there. This will give us the structure and direction needed to achieve our desired outcomes.
+Failure is an essential part of success. As Jeff Bezos said: "If you want to be inventive, you have to be willing to fail". We can’t be scared of the possibility of failure. It’s only through repeated attempts that we can find our way to the right solution.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life without dreams is as meaningless as a starless night sky. To live fully and to find true joy, we must have dreams to strive for. As Malcolm Forbes said: "When you cease to dream you cease to live". To live life to the fullest, never forget to keep dreaming and working towards your dreams.
+We all have our own limitations, but we should never let those limit us. As Steve Case said: "You shouldn't focus on why you can't do something, which is what most people do. You should focus on why perhaps you can, and be one of the exceptions." It's important to stay positive and determined no matter what obstacles you may face.
 
 <!-- </quote> -->
 

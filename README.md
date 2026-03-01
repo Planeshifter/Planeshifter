@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all have our own limitations, but we should never let those limit us. As Steve Case said: "You shouldn't focus on why you can't do something, which is what most people do. You should focus on why perhaps you can, and be one of the exceptions." It's important to stay positive and determined no matter what obstacles you may face.
+Why take a chance when you can stay safe? To live a fulfilling life. Or, as Ilka Chase said, "The only people who never fail are those who never try." This highlights the importance of taking risks and trying new things in order to succeed and grow. This quote is important to me because it reminds me to take risks and try new things in order to discover more about myself and the world around me.
 
 <!-- </quote> -->
 

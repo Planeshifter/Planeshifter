@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Why take a chance when you can stay safe? To live a fulfilling life. Or, as Ilka Chase said, "The only people who never fail are those who never try." This highlights the importance of taking risks and trying new things in order to succeed and grow. This quote is important to me because it reminds me to take risks and try new things in order to discover more about myself and the world around me.
+We all want to leave a lasting impression. As Larry Page, co-founder of Google, said: "Always deliver more than expected". Strive for excellence and exceed expectations with every task. This will make you stand out from the crowd and ensure that you make your mark.
 
 <!-- </quote> -->
 

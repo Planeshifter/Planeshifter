@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-How long does it take to do anything? As long as it takes! Or, as Helen Keller said, "We can do anything we want to do if we stick to it long enough." This quote encourages us to persist in the face of difficulties, no matter how long it takes. This applies to our daily lives when we set goals, as we may hit roadblocks or experience discouragement along the way. However, if we stick with it, we can eventually attain our goals.
+Failure isn’t an option - as Emil Motycka said: "The biggest failure you can have in life is not trying at all." We must push ourselves and take risks if we want to succeed. The only failure is not trying, for that takes away any chance of growth and success.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Failure isn’t an option - as Emil Motycka said: "The biggest failure you can have in life is not trying at all." We must push ourselves and take risks if we want to succeed. The only failure is not trying, for that takes away any chance of growth and success.
+Never be satisfied with what you have. As Syed Balkhi said: "You should always stay hungry. Stay hungry, so you can eat". Life is a journey and it’s important to always strive for more and never give up. Keeping your hunger alive will help you stay motivated and make progress.
 
 <!-- </quote> -->
 

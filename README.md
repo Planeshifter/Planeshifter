@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Never be satisfied with what you have. As Syed Balkhi said: "You should always stay hungry. Stay hungry, so you can eat". Life is a journey and it’s important to always strive for more and never give up. Keeping your hunger alive will help you stay motivated and make progress.
+We all have our own limitations, but we should never let those limit us. As Steve Case said: "You shouldn't focus on why you can't do something, which is what most people do. You should focus on why perhaps you can, and be one of the exceptions." It's important to stay positive and determined no matter what obstacles you may face.
 
 <!-- </quote> -->
 

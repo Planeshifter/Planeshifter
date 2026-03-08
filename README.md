@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What can be created without knowledge? Imagination. Or, as Albert Einstein said, "Imagination is more important than knowledge." This quote means that having ideas and thinking outside the box is more important than simply possessing existing knowledge. In life, having creative and innovative thoughts and ideas can help us to be successful and get ahead, whether in the workplace, in relationships, or in any other area. We can use our imaginations to come up with new solutions and approaches that can benefit us in the long run.
+Entrepreneurship is a journey that requires you to take risks that most people won't in order to achieve success. As Anonymous said, "Entrepreneurship is living a few years of your life like most people won't, so that you can spend the rest of your life like most people can't". It is going the extra mile and giving it your all every day to create something amazing.
 
 <!-- </quote> -->
 

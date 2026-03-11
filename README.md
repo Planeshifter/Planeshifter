@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-How do we find true happiness? By looking within. Or, as Benjamin Franklin said, “Happiness depends more on the inward disposition of mind than on outward circumstances.” This quote stresses the importance of looking within to find true and lasting happiness, not depending on our external environment or situations. This is important to us because it suggests that our emotional wellbeing is in our hands and that we can find joy, no matter the conditions of our lives.
+Money and success may be desirable goals, but they do not necessarily guarantee happiness or fulfillment. As Will Smith said, they merely amplify what is already there. It is important to cultivate our inner values and morals, instead of relying on external possessions, to truly be content.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Money and success may be desirable goals, but they do not necessarily guarantee happiness or fulfillment. As Will Smith said, they merely amplify what is already there. It is important to cultivate our inner values and morals, instead of relying on external possessions, to truly be content.
+If you don't have a clear goal in mind, then no effort you make will be fruitful. To achieve any success, you must define your destination. As Lucius Annaeus Seneca said: "If one does not know to which port one is sailing, no wind is favorable." Without a goal, there can be no success.
 
 <!-- </quote> -->
 

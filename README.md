@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Can you lead without compromise? Yes. Or, as Woodrow Wilson said, "Leadership does not always wear the harness of compromise." Leadership is about making decisions and standing by them, and that often means not compromising. Compromise is sometimes necessary, but not always. This quote helps to remind us that when it comes to our decisions, we should be brave and decisive, and not be afraid to stand by our convictions. In our daily lives, this quote is important as it shows us that we must have the courage to make our own decisions and not be scared of the consequences.
+You can't just throw any feature into a project and expect it to work. As Noah Everett from Twitpic says: "A poorly implemented feature hurts more than not having it at all". It's important to take the time to make sure all features are properly thought out and implemented. This can make all the difference between success and failure.
 
 <!-- </quote> -->
 

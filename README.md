@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You can't just throw any feature into a project and expect it to work. As Noah Everett from Twitpic says: "A poorly implemented feature hurts more than not having it at all". It's important to take the time to make sure all features are properly thought out and implemented. This can make all the difference between success and failure.
+Success requires hard work. As Maya Angelou said: "Nothing will work unless you do". We can't expect that things will just fall into place without any effort. We need to take action, be determined and keep pushing forward in order to reach our goals.
 
 <!-- </quote> -->
 

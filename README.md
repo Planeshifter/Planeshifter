@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success requires hard work. As Maya Angelou said: "Nothing will work unless you do". We can't expect that things will just fall into place without any effort. We need to take action, be determined and keep pushing forward in order to reach our goals.
+Hard work pays off, as Robert Frost said: "By working faithfully eight hours a day you may eventually get to be boss and work twelve hours a day". It takes dedication and effort to reach the top, and it's important to remember that success doesn't come overnight.
 
 <!-- </quote> -->
 

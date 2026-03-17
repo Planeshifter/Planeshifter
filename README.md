@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Hard work pays off, as Robert Frost said: "By working faithfully eight hours a day you may eventually get to be boss and work twelve hours a day". It takes dedication and effort to reach the top, and it's important to remember that success doesn't come overnight.
+Hard work and dedication are key factors in achieving success. As Joe Penna said: "Every single person I know who is successful at what they do is successful because they love doing it". To be successful, you need to have a genuine passion for what you do and put in the effort to make it happen.
 
 <!-- </quote> -->
 

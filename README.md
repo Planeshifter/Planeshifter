@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Hard work and dedication are key factors in achieving success. As Joe Penna said: "Every single person I know who is successful at what they do is successful because they love doing it". To be successful, you need to have a genuine passion for what you do and put in the effort to make it happen.
+We all want to enjoy our lives and find a job where we can be passionate about. As Confucius said: "Find a job you love and you'll never work a day in your life". This means that if we find a job that we love and are passionate about, then every day will be an enjoyable experience.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all want to enjoy our lives and find a job where we can be passionate about. As Confucius said: "Find a job you love and you'll never work a day in your life". This means that if we find a job that we love and are passionate about, then every day will be an enjoyable experience.
+You reap what you sow. As the Chinese proverb says: “If you pay peanuts, you get monkeys.” If you expect quality work and results, you must be willing to invest in the right people and resources. You can’t expect exceptional performance from those who are not properly rewarded.
 
 <!-- </quote> -->
 

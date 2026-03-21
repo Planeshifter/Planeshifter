@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We live in a world of endless opportunities, but it's important to remember that we should not take on too much. As the German Proverb says: “He who begins many things finishes but few”. It is important to focus on our goals and limit distractions so that we can achieve success.
+Where can we find the sacred? In our daily life, in our friends, family, and even our own backyard. Or, as Abraham Maslow said, "The great lesson is that the sacred is in the ordinary, that it is to be found in one's daily life, in one's neighbors, friends and family, in one's backyard." This quote encourages us to recognize the beauty, joy, and peace that exists all around us, in the ordinary moments of our lives. This is important because it can remind us to take a step back from our busy lives and appreciate the people, places, and things that make our lives meaningful.
 
 <!-- </quote> -->
 

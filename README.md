@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-If you want to build a successful business, you need to be smart with your hiring. As Peter Berg, founder of October Three, said: "Be really picky with your hiring, and hire the absolute best people you possibly can". Your team is what will determine the success of your business, so it's important to take your time to find the right people.
+It takes time and effort to get to where we want to be. As the Chinese proverb says, "A jade stone is useless before it is processed; a man is good-for-nothing until he is educated". Education is the key to unlocking our potential and achieving our goals. We must be open to learning, growing and developing our skills if we want to make something of ourselves.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Are our accomplishments really what matters? No, our aspirations do. Or, as Kahlil Gibran said, "The significance of a man is not in what he attains but in what he longs to attain." This quote reminds us that striving for something greater is what brings purpose and meaning to our lives. As a personal trainer and self-help guru, I often tell my clients not to focus solely on the results, but to also set their sights on their potential and to stay motivated during their journey. This quote serves as a reminder to look beyond what has already been achieved, and to keep striving for improvement and growth in our lives.
+It's easy to get caught up in the end goal or finish line when it comes to achieving success. However, as Steve Wozniak reminds us, it's important to focus on each step in the journey and to give each task your best effort. When we do this, we can trust the process and have faith that the outcome will be rewarding.
 
 <!-- </quote> -->
 

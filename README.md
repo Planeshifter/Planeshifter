@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's easy to get caught up in the end goal or finish line when it comes to achieving success. However, as Steve Wozniak reminds us, it's important to focus on each step in the journey and to give each task your best effort. When we do this, we can trust the process and have faith that the outcome will be rewarding.
+Failure is an essential part of success. As Jeff Bezos said: "If you want to be inventive, you have to be willing to fail". We can’t be scared of the possibility of failure. It’s only through repeated attempts that we can find our way to the right solution.
 
 <!-- </quote> -->
 

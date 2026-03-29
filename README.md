@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No man is an island. As the Chinese proverb says: "Make happy those who are near, and those who are far will come". Our connections to the people around us are essential to our overall contentment and success, so it's important to nurture them.
+How can we stay strong in difficult times? Never give in, no matter the opposition. Or, as Winston Churchill said, "Never, never, never, never, in nothing great or small, large or petty, never give in except to convictions of honour and good sense. Never yield to force; never yield to the apparently overwhelming might of the enemy." Self-control, resilience, and perseverance are essential for success and Churchill's quote is a reminder to never give in, no matter the challenge. This quote relates to our daily lives because it encourages us to stay focused on our goals and objectives, and to keep striving for them no matter the obstacles that we might face.
 
 <!-- </quote> -->
 

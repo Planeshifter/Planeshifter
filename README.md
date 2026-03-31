@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Failure is an essential part of success. As Jeff Bezos said: "If you want to be inventive, you have to be willing to fail". We can’t be scared of the possibility of failure. It’s only through repeated attempts that we can find our way to the right solution.
+Life is a journey, and the only way to get to the finish line is to push yourself to the limit. As Mario Andretti put it: "If everything seems under control, you’re just not going fast enough." If you want to achieve success, you must be willing to take risks and push yourself beyond your comfort zone.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-As Larry Page, CEO of Google, says: "Lots of companies don’t succeed over time. What do they fundamentally do wrong? They usually miss the future." This is a warning to all companies: the key to success is to be able to keep up with the trend and embrace change. Companies who fail to do this will eventually fall behind.
+Success can‘t be faked. As Anthony Volodkin, founder of Hype Machine says: "Be undeniably good. No marketing effort or social media buzzword can be a substitute for that". Only quality work and dedication will lead to success. Anything else is just a waste of time.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success can‘t be faked. As Anthony Volodkin, founder of Hype Machine says: "Be undeniably good. No marketing effort or social media buzzword can be a substitute for that". Only quality work and dedication will lead to success. Anything else is just a waste of time.
+Success never comes from complacency. As Jimmy Spithill, Australian yachtsman, said: "Rarely have I seen a situation where doing less than the other guy is a good strategy". This means we have to take risks, set ambitious goals, and consistently work hard to reach our goals and surpass our competition.
 
 <!-- </quote> -->
 

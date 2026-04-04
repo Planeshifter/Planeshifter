@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success never comes from complacency. As Jimmy Spithill, Australian yachtsman, said: "Rarely have I seen a situation where doing less than the other guy is a good strategy". This means we have to take risks, set ambitious goals, and consistently work hard to reach our goals and surpass our competition.
+What fuels achievement? Goals. Or, as Brian Tracy said, "Goals are the fuel in the furnace of achievement." This quote encourages us to set goals to motivate and inspire us to reach our highest potential and achieve our ambitions. This relates to my daily life because it reminds me to set goals that will push me to continue striving towards creating the life that I want and achieving my dreams.
 
 <!-- </quote> -->
 

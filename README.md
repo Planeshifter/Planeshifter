@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What fuels achievement? Goals. Or, as Brian Tracy said, "Goals are the fuel in the furnace of achievement." This quote encourages us to set goals to motivate and inspire us to reach our highest potential and achieve our ambitions. This relates to my daily life because it reminds me to set goals that will push me to continue striving towards creating the life that I want and achieving my dreams.
+Success is often a matter of timing and discretion. Chris Dixon, co-founder of Hunch, said: "Get big quietly, so you don’t tip off potential competitors". Taking a slow and steady approach to growth is key to staying ahead in the game and avoiding unwanted attention.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What's the difference between knowing and overlooking? Knowing is aware and conscious, overlooking is disregarding or ignoring. Or, as William James said, "The art of being wise is knowing what to overlook." This quote means that wisdom is not just about knowing what to pay attention to, but also being able to ignore what is not important or beneficial. In our daily lives, this quote reminds us to choose our battles wisely, and to be careful not to be overwhelmed by the small stuff; it's important to know when it's better to overlook certain situations and move on.
+What's the result of failing? Success. Or, as Marian Wright Edelman said, "Failure is just another way to learn how to do something right." This quote reminds us that failure is merely a learning opportunity and not necessarily an endpoint. It's important to recognize that mistakes and failures can be seen in a positive light, as they offer an opportunity to learn and grow. This applies to life in general and can help individuals stay motivated and continue to strive for improvement.
 
 <!-- </quote> -->
 

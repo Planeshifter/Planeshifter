@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What's the result of failing? Success. Or, as Marian Wright Edelman said, "Failure is just another way to learn how to do something right." This quote reminds us that failure is merely a learning opportunity and not necessarily an endpoint. It's important to recognize that mistakes and failures can be seen in a positive light, as they offer an opportunity to learn and grow. This applies to life in general and can help individuals stay motivated and continue to strive for improvement.
+Making mistakes is part of life, and it is how we learn and grow. As John C. Maxwell said: "A man must be big enough to admit his mistakes, smart enough to profit from them, and strong enough to correct them." It takes courage to recognize our mistakes and even more courage to accept responsibility and make changes. It is a sign of strength, not weakness.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Making mistakes is part of life, and it is how we learn and grow. As John C. Maxwell said: "A man must be big enough to admit his mistakes, smart enough to profit from them, and strong enough to correct them." It takes courage to recognize our mistakes and even more courage to accept responsibility and make changes. It is a sign of strength, not weakness.
+What does audacity create?  Success! Or, as Benjamin Disraeli said, "Success is the child of audacity". This quote means that if you take action with courage and boldness, you are more likely to achieve success. It is important to me because it encourages me to take risks and be confident in my decisions, even when it feels like the odds are against me. Taking risks is essential for reaching goals and achieving success.
 
 <!-- </quote> -->
 

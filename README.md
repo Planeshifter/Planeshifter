@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What does audacity create?  Success! Or, as Benjamin Disraeli said, "Success is the child of audacity". This quote means that if you take action with courage and boldness, you are more likely to achieve success. It is important to me because it encourages me to take risks and be confident in my decisions, even when it feels like the odds are against me. Taking risks is essential for reaching goals and achieving success.
+What happens when someone looks within?  They awaken. Or, as Carl Jung said, "Who looks outside, dreams. Who looks inside, awakes." The quote encourages us to look inward and be aware of our inner thoughts and feelings. By doing so, we can gain clarity on our life purpose and make decisions that are in alignment with who we truly are. This is important to our daily life because it allows us to make conscious choices that reflect our individual values and lead us to a more fulfilling life.
 
 <!-- </quote> -->
 

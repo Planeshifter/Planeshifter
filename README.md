@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What happens when someone looks within?  They awaken. Or, as Carl Jung said, "Who looks outside, dreams. Who looks inside, awakes." The quote encourages us to look inward and be aware of our inner thoughts and feelings. By doing so, we can gain clarity on our life purpose and make decisions that are in alignment with who we truly are. This is important to our daily life because it allows us to make conscious choices that reflect our individual values and lead us to a more fulfilling life.
+Where can strength and confidence be found? Within. Or, as Anna Freud said, "I was always looking outside myself for strength and confidence, but it comes from within. It is there all of the time." This quote emphasizes the importance of self-confidence and self-reliance. It is important to remember that our internal resources are just as valid and powerful as those we find in the external world. When we are able to tap into the confidence and strength that lies within us, we can persevere in the face of life's challenges and create the success we desire.
 
 <!-- </quote> -->
 

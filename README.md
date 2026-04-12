@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Where can strength and confidence be found? Within. Or, as Anna Freud said, "I was always looking outside myself for strength and confidence, but it comes from within. It is there all of the time." This quote emphasizes the importance of self-confidence and self-reliance. It is important to remember that our internal resources are just as valid and powerful as those we find in the external world. When we are able to tap into the confidence and strength that lies within us, we can persevere in the face of life's challenges and create the success we desire.
+Past successes don't guarantee future success. As Babe Ruth said: "Yesterday's home runs don't win today's games". We must keep working hard and pushing ourselves in order to stay ahead. We can't rest on our laurels and expect to get by - we must have the drive and determination to move forward.
 
 <!-- </quote> -->
 

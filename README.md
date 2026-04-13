@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Past successes don't guarantee future success. As Babe Ruth said: "Yesterday's home runs don't win today's games". We must keep working hard and pushing ourselves in order to stay ahead. We can't rest on our laurels and expect to get by - we must have the drive and determination to move forward.
+Failure is inevitable on the road to success. As Napoleon Hill said, “most great people have attained their greatest success just one step beyond their greatest failure.” This means that we should not fear or be discouraged by failure, but instead continue to press on and learn from our mistakes.
 
 <!-- </quote> -->
 

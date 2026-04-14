@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Failure is inevitable on the road to success. As Napoleon Hill said, “most great people have attained their greatest success just one step beyond their greatest failure.” This means that we should not fear or be discouraged by failure, but instead continue to press on and learn from our mistakes.
+Life is full of risks and taking risks means making mistakes. As Jeff Clavier said: "If we don’t allow ourselves to make mistakes, we will never invest in things that are radical." We must embrace the fear of failure in order to achieve success. Taking risks can be scary but can also be rewarding.
 
 <!-- </quote> -->
 

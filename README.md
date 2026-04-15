@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is full of risks and taking risks means making mistakes. As Jeff Clavier said: "If we don’t allow ourselves to make mistakes, we will never invest in things that are radical." We must embrace the fear of failure in order to achieve success. Taking risks can be scary but can also be rewarding.
+If you want to make sure your business succeeds, follow Garrett Camp's advice and stay self-funded as long as possible. When you're self-funded, you're in control and don't have to worry about external investors or venture capitalists influencing your decisions. That way, you can build your business by sticking to your own vision and mission.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all know that time is money. As Carrie Wilkerson said: "The longer you’re not taking action the more money you’re losing." The longer we wait and procrastinate, the more opportunities we miss out on and the further we fall behind. So don't sit around, take action now!
+It's easy to lose hope when facing uphill battles. But as Henry Ford said: "When everything seems to be going against you, remember that the airplane takes off against the wind, not with it." It's a reminder that adversity is not insurmountable and we can overcome any challenge.
 
 <!-- </quote> -->
 

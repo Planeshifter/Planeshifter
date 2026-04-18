@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's easy to lose hope when facing uphill battles. But as Henry Ford said: "When everything seems to be going against you, remember that the airplane takes off against the wind, not with it." It's a reminder that adversity is not insurmountable and we can overcome any challenge.
+What's done must come to an end? Indeed! Or, as Solon said, "In all things that you do, consider the end." This quote encourages us to think critically about the long-term implications of our actions. Knowing the end goal of something helps us to make better decisions in the present. By considering the end, we can understand the entire trajectory of an action and how it might play out in the future. In our daily lives, this helps to ensure that we are making decisions that will benefit us in the long run and not simply making decisions that will bring us temporary satisfaction.
 
 <!-- </quote> -->
 

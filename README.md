@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What's done must come to an end? Indeed! Or, as Solon said, "In all things that you do, consider the end." This quote encourages us to think critically about the long-term implications of our actions. Knowing the end goal of something helps us to make better decisions in the present. By considering the end, we can understand the entire trajectory of an action and how it might play out in the future. In our daily lives, this helps to ensure that we are making decisions that will benefit us in the long run and not simply making decisions that will bring us temporary satisfaction.
+Success isn't a destination we reach, but a journey we're on. As Thomas J. Watson said, “Whenever an individual or a business decides that success has been attained, progress stops”. We must always strive to keep improving and growing, otherwise our journey to success is at a dead end.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success isn't a destination we reach, but a journey we're on. As Thomas J. Watson said, “Whenever an individual or a business decides that success has been attained, progress stops”. We must always strive to keep improving and growing, otherwise our journey to success is at a dead end.
+What's the best way to avoid disappointment? Determine to succeed. Or, as Richard Brinsley Sheridan said, "The surest way not to fail is to determine to succeed." This quote encourages us to have a strong, motivated mindset when facing challenges. It reminds us that by taking action and committing ourselves to our goals, we can achieve success. The quote is important because it helps us to create a positive attitude and take proactive steps towards meeting our goals.
 
 <!-- </quote> -->
 

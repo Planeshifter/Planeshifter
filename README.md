@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Entrepreneurship is a journey that requires you to take risks that most people won't in order to achieve success. As Anonymous said, "Entrepreneurship is living a few years of your life like most people won't, so that you can spend the rest of your life like most people can't". It is going the extra mile and giving it your all every day to create something amazing.
+Hard work is the key to success. As Vidal Sassoon said: “The only place where success comes before work is in the dictionary.” No one can ever reach their goals without putting in the effort. Success doesn't come automatically, it takes dedication and perseverance.
 
 <!-- </quote> -->
 

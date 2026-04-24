@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Hard work is the key to success. As Vidal Sassoon said: “The only place where success comes before work is in the dictionary.” No one can ever reach their goals without putting in the effort. Success doesn't come automatically, it takes dedication and perseverance.
+What kind of leader accelerates growth? A great one! Or, as John C. Maxwell said, "While a good leader sustains momentum, a great leader increases it." This quote speaks to the importance of strong and effective leadership in any organization. Great leaders can help make their teams more productive, efficient, and successful. The same is true in our personal lives; having the right kind of leader can help us reach our own goals and dreams more quickly.
 
 <!-- </quote> -->
 

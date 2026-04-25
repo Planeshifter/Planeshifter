@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What kind of leader accelerates growth? A great one! Or, as John C. Maxwell said, "While a good leader sustains momentum, a great leader increases it." This quote speaks to the importance of strong and effective leadership in any organization. Great leaders can help make their teams more productive, efficient, and successful. The same is true in our personal lives; having the right kind of leader can help us reach our own goals and dreams more quickly.
+What is the key to living the life you desire? Confidence. Or, as Henry David Thoreau said, "Go confidently in the direction of your dreams. Live the life you have imagined." This quote encourages us to believe in ourselves and to have the courage to pursue our goals. This has a real-world application in our lives as we often doubt our own abilities and are afraid to take risks. By believing in ourselves and having the confidence to take action, we can reach our goals and live the life we have imagined.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is the key to living the life you desire? Confidence. Or, as Henry David Thoreau said, "Go confidently in the direction of your dreams. Live the life you have imagined." This quote encourages us to believe in ourselves and to have the courage to pursue our goals. This has a real-world application in our lives as we often doubt our own abilities and are afraid to take risks. By believing in ourselves and having the confidence to take action, we can reach our goals and live the life we have imagined.
+Dreams can become reality with the right mindset. Dr. Napoleon Hill said it best: “Whatever the mind can conceive and believe, the mind can achieve.” Believe in yourself and your potential, and you can achieve anything.
 
 <!-- </quote> -->
 

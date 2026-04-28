@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Dreams can become reality with the right mindset. Dr. Napoleon Hill said it best: “Whatever the mind can conceive and believe, the mind can achieve.” Believe in yourself and your potential, and you can achieve anything.
+Money and material things can only take us so far. As Aristotle said: "After a certain point, money is meaningless. It ceases to be the goal. The game is what counts." We shouldn't strive to acquire wealth just for the sake of it. The ultimate goal should be to experience life and enjoy the journey.
 
 <!-- </quote> -->
 

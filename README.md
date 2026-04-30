@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's easy to doubt those who are trying to achieve greatness. As the Chinese Proverb says: "A person who says it cannot be done should not interrupt the man doing it." We should instead show our support and help those who are brave enough to pursue their dreams.
+Why can't you please everyone? You can't please everyone. Or, as Herbert Bayard Swope said, "I cannot give you the formula for success, but I can give you the formula for failure - which is: Try to please everybody." This quote recognizes that it is generally not possible to please everyone and that trying to do so can be a recipe for failure. It reminds us to stay focused on our own goals and not worry too much about what others think. In our daily lives, this quote reminds us to stay true to ourselves and our values, rather than trying to live up to everyone else's expectations.
 
 <!-- </quote> -->
 

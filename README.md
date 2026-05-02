@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Never be satisfied with what you have. As Syed Balkhi said: "You should always stay hungry. Stay hungry, so you can eat". Life is a journey and it’s important to always strive for more and never give up. Keeping your hunger alive will help you stay motivated and make progress.
+Nothing is impossible. Ben Weissenstein was spot on when he said “Everything started as nothing”. This means that with hard work, dedication, and the right mindset, we can achieve anything. Don’t be afraid to start - opportunities are everywhere, you just have to find them and take the first step.
 
 <!-- </quote> -->
 

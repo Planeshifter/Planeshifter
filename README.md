@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Nothing is impossible. Ben Weissenstein was spot on when he said “Everything started as nothing”. This means that with hard work, dedication, and the right mindset, we can achieve anything. Don’t be afraid to start - opportunities are everywhere, you just have to find them and take the first step.
+Success is not a given. It is something that needs to be earned and maintained. As Cher Wang, CEO of HTC said: "It takes humility to realize that we don't know everything, not to rest on our laurels and know that we must keep learning and observing. If we don't, we can be sure some startup will be there to take our place." Learning and adapting to the ever changing environment is essential for any successful venture. We must stay humble, and be willing to experiment, in order to stay ahead of the game.
 
 <!-- </quote> -->
 

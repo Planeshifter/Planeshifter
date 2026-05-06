@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-As George Burns said, it's better to fail at something we love than to be successful at something we dislike. Success without passion and joy is hollow. Life is too short to waste it on something we don't enjoy. It's important to find something we enjoy, and be passionate and determined to work hard to succeed.
+Can you lead without compromise? Yes. Or, as Woodrow Wilson said, "Leadership does not always wear the harness of compromise." Leadership is about making decisions and standing by them, and that often means not compromising. Compromise is sometimes necessary, but not always. This quote helps to remind us that when it comes to our decisions, we should be brave and decisive, and not be afraid to stand by our convictions. In our daily lives, this quote is important as it shows us that we must have the courage to make our own decisions and not be scared of the consequences.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Having a vision is not enough if we don't take any action. As the Japanese proverb says, “Vision without action is a daydream. Action without vision is a nightmare.” If we don't have a clear plan and direction, our actions will be misguided and we will never reach our goals.
+Reputation is a fragile thing. As Warren Buffett said, “It takes 20 years to build a reputation and five minutes to ruin it.” That is why it is important to think twice before we act. We should be careful not to do things that will damage our reputation, or else all our hard work will be wasted.
 
 <!-- </quote> -->
 

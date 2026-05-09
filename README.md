@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Reputation is a fragile thing. As Warren Buffett said, “It takes 20 years to build a reputation and five minutes to ruin it.” That is why it is important to think twice before we act. We should be careful not to do things that will damage our reputation, or else all our hard work will be wasted.
+Success is a journey, not a destination. As Bill Gates said: "It’s fine to celebrate success but it is more important to heed the lessons of failure". We must all learn from our mistakes, so that we can continue to grow and reach our goals. Failure is a part of life, but it should never stop us from trying again.
 
 <!-- </quote> -->
 

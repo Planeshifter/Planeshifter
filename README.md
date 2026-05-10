@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is a journey, not a destination. As Bill Gates said: "It’s fine to celebrate success but it is more important to heed the lessons of failure". We must all learn from our mistakes, so that we can continue to grow and reach our goals. Failure is a part of life, but it should never stop us from trying again.
+Dreams can only come true if we are willing to put in the necessary effort. As Donald Trump said: "I wasn't satisfied just to earn a good living. I was looking to make a statement." It takes dedication, resilience and dedication to make those dreams a reality.
 
 <!-- </quote> -->
 

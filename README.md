@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Dreams can only come true if we are willing to put in the necessary effort. As Donald Trump said: "I wasn't satisfied just to earn a good living. I was looking to make a statement." It takes dedication, resilience and dedication to make those dreams a reality.
+Dreams can become reality with the right mindset. Dr. Napoleon Hill said it best: “Whatever the mind can conceive and believe, the mind can achieve.” Believe in yourself and your potential, and you can achieve anything.
 
 <!-- </quote> -->
 

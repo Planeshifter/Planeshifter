@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What must be done to find joy? Take action. Or, as Benjamin Disraeli said, "Action may not always bring happiness; but there is no happiness without action." This quote emphasizes the importance of taking action in life, as no matter how hard you wish for something, it will not come to fruition until you act on it. Taking action and being proactive is important for personal growth and for achieving short- and long-term goals in life. Taking action is a powerful way to bring about positive change and increase your sense of accomplishment.
+We shouldn't be ostentatious about our wealth and possessions. As the Chinese proverb says: "When you go to buy, don't show your silver". It's best to be humble and prudent when it comes to money, as it will help you to stay grounded in the face of success.
 
 <!-- </quote> -->
 

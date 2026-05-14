@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We shouldn't be ostentatious about our wealth and possessions. As the Chinese proverb says: "When you go to buy, don't show your silver". It's best to be humble and prudent when it comes to money, as it will help you to stay grounded in the face of success.
+Success is a journey, not a destination. As Bill Gates said: "It’s fine to celebrate success but it is more important to heed the lessons of failure". We must all learn from our mistakes, so that we can continue to grow and reach our goals. Failure is a part of life, but it should never stop us from trying again.
 
 <!-- </quote> -->
 

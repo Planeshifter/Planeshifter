@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is a journey, not a destination. As Bill Gates said: "It’s fine to celebrate success but it is more important to heed the lessons of failure". We must all learn from our mistakes, so that we can continue to grow and reach our goals. Failure is a part of life, but it should never stop us from trying again.
+What's the difference between knowing and overlooking? Knowing is aware and conscious, overlooking is disregarding or ignoring. Or, as William James said, "The art of being wise is knowing what to overlook." This quote means that wisdom is not just about knowing what to pay attention to, but also being able to ignore what is not important or beneficial. In our daily lives, this quote reminds us to choose our battles wisely, and to be careful not to be overwhelmed by the small stuff; it's important to know when it's better to overlook certain situations and move on.
 
 <!-- </quote> -->
 

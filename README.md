@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What's the difference between knowing and overlooking? Knowing is aware and conscious, overlooking is disregarding or ignoring. Or, as William James said, "The art of being wise is knowing what to overlook." This quote means that wisdom is not just about knowing what to pay attention to, but also being able to ignore what is not important or beneficial. In our daily lives, this quote reminds us to choose our battles wisely, and to be careful not to be overwhelmed by the small stuff; it's important to know when it's better to overlook certain situations and move on.
+No matter how big your dreams are, it’s important to focus on the present and make sure that you are doing everything you can to serve one customer at a time. As Gary Comer said, “Worry about being better; bigger will take care of itself. Think one customer at a time and take care of each one the best way you can.”
 
 <!-- </quote> -->
 

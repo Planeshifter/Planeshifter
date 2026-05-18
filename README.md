@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Creativity and originality are important, but they are not enough to achieve success. In the modern world of business, as David Ogilvy said, "it is useless to be a creative, original thinker unless you can also sell what you create". This means that we need to be able to market our ideas and skills in order to make them successful.
+What can't you rely on when your dreams are blurry? Your sight. Or, as Mark Twain said, "You cannot depend on your eyes when your imagination is out of focus." This quote encourages us to pay attention to our mental clarity and focus in order to properly use our vision. Imagination is an invaluable tool for life, so it is important to ensure it is working correctly in order to make the most of our eyes. It is essential to stay sharp and focused on our goals so that we can use our eyes to help us identify and reach them.
 
 <!-- </quote> -->
 

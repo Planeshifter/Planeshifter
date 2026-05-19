@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What can't you rely on when your dreams are blurry? Your sight. Or, as Mark Twain said, "You cannot depend on your eyes when your imagination is out of focus." This quote encourages us to pay attention to our mental clarity and focus in order to properly use our vision. Imagination is an invaluable tool for life, so it is important to ensure it is working correctly in order to make the most of our eyes. It is essential to stay sharp and focused on our goals so that we can use our eyes to help us identify and reach them.
+Failure is not the end. As Robert T. Kiyosaki said: "Failure defeats losers, failure inspires winners". We should not be afraid to take risks, as it is from our mistakes that we can learn and grow. Only then can we be successful.
 
 <!-- </quote> -->
 

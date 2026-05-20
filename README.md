@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Failure is not the end. As Robert T. Kiyosaki said: "Failure defeats losers, failure inspires winners". We should not be afraid to take risks, as it is from our mistakes that we can learn and grow. Only then can we be successful.
+Life is full of risks and taking risks means making mistakes. As Jeff Clavier said: "If we don’t allow ourselves to make mistakes, we will never invest in things that are radical." We must embrace the fear of failure in order to achieve success. Taking risks can be scary but can also be rewarding.
 
 <!-- </quote> -->
 

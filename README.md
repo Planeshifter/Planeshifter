@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is full of risks and taking risks means making mistakes. As Jeff Clavier said: "If we don’t allow ourselves to make mistakes, we will never invest in things that are radical." We must embrace the fear of failure in order to achieve success. Taking risks can be scary but can also be rewarding.
+It’s never too late to start working towards your goals. As the Chinese proverb goes: "The best time to plant a tree was 20 years ago. The second best time is now". Our past does not define us, and it’s never too late to make a positive change.
 
 <!-- </quote> -->
 

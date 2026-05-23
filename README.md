@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Why bother if all obstacles must be cleared first? Because nothing will get done. Or, as Samuel Johnson said, Nothing will ever be attempted if all possible objections must first be overcome. This quote reminds us that it is not enough to just see the potential benefits of a task, but that we must take action in order to get something done. In our lives, this means that if we want to achieve our goals, we must be willing to take risks and overcome any obstacles that stand in our way.
+How can a broken bird fly? It can't. Or, as Langston Hughes said, "Hold fast to dreams, for if dreams die, life is a broken winged bird that cannot fly." This quote emphasizes the importance of not giving up on our dreams in order to live a fulfilling life. Without dreams and ambition, our lives will be limited and stagnant. This quote is important because it reminds us to keep our hopes and ambitions alive and strive for the life we want.
 
 <!-- </quote> -->
 

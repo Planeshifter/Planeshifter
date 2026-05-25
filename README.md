@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's true that success begets success. As Tony Robbins put it: "People who succeed have momentum. The more they succeed, the more they want to succeed, and the more they find a way to succeed". The opposite is also true: if you're constantly failing, it can become a self-fulfilling prophecy. The key is to stay positive and keep trying despite the setbacks.
+What fuels achievement? Goals. Or, as Brian Tracy said, "Goals are the fuel in the furnace of achievement." This quote encourages us to set goals to motivate and inspire us to reach our highest potential and achieve our ambitions. This relates to my daily life because it reminds me to set goals that will push me to continue striving towards creating the life that I want and achieving my dreams.
 
 <!-- </quote> -->
 

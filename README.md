@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What fuels achievement? Goals. Or, as Brian Tracy said, "Goals are the fuel in the furnace of achievement." This quote encourages us to set goals to motivate and inspire us to reach our highest potential and achieve our ambitions. This relates to my daily life because it reminds me to set goals that will push me to continue striving towards creating the life that I want and achieving my dreams.
+What is entrepreneurship? It is a practice. Or, as Peter Drucker said, "Entrepreneurship is neither a science nor an art. It is a practice." This quote encourages us to focus on the doing—that is, putting into practice the things we learn, instead of just studying them. Practicing entrepreneurship is key in order to catalyze growth and find success. This quote is important to me as a personal trainer and self-help guru because it emphasizes the importance of putting into practice the advice and information I provide to those I work with, rather than simply teaching them. This helps ensure that my clients are able to use the knowledge I give them to become successful.
 
 <!-- </quote> -->
 

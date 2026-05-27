@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is entrepreneurship? It is a practice. Or, as Peter Drucker said, "Entrepreneurship is neither a science nor an art. It is a practice." This quote encourages us to focus on the doing—that is, putting into practice the things we learn, instead of just studying them. Practicing entrepreneurship is key in order to catalyze growth and find success. This quote is important to me as a personal trainer and self-help guru because it emphasizes the importance of putting into practice the advice and information I provide to those I work with, rather than simply teaching them. This helps ensure that my clients are able to use the knowledge I give them to become successful.
+No one can deny the importance of a good education. However, Jim Rohn, the author and speaker, points out that education should not be limited to the classroom. He says: "Formal education will make you a living; self-education will make you a fortune." Self-education is just as necessary and can be the difference between a good life and a great one.
 
 <!-- </quote> -->
 

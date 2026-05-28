@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No one can deny the importance of a good education. However, Jim Rohn, the author and speaker, points out that education should not be limited to the classroom. He says: "Formal education will make you a living; self-education will make you a fortune." Self-education is just as necessary and can be the difference between a good life and a great one.
+It's essential to hire people based on their character and not just their skill set. As Peter Schultz said, "Hire character. Train skill." Focusing on a person's character will help you find someone who's reliable and trustworthy. Once you've hired the right person, you can then give them the necessary training and resources to help them build their skills.
 
 <!-- </quote> -->
 

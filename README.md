@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's essential to hire people based on their character and not just their skill set. As Peter Schultz said, "Hire character. Train skill." Focusing on a person's character will help you find someone who's reliable and trustworthy. Once you've hired the right person, you can then give them the necessary training and resources to help them build their skills.
+Education is key to success, but it doesn't have to be a formal process. As Mitch Hedberg said: “I didn’t go to college, but if I did, I would’ve taken all my tests at a restaurant, ’cause ‘The customer is always right.’” This quote teaches us that we can gain knowledge from any environment, as long as we approach it with an open mind and a willingness to learn.
 
 <!-- </quote> -->
 

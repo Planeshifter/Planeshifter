@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all want to enjoy our lives and find a job where we can be passionate about. As Confucius said: "Find a job you love and you'll never work a day in your life". This means that if we find a job that we love and are passionate about, then every day will be an enjoyable experience.
+Time is of the essence in today's high-paced world. Tamara Steffens said it best: "Assume you have 90 seconds with a new user before they decide to use your app or delete it". This is especially true for mobile apps, where users are often overwhelmed with choices and easily become disinterested. It's essential to make a good first impression and engage users in a short period of time. Every second counts when it comes to user retention and satisfaction.
 
 <!-- </quote> -->
 

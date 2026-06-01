@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Time is of the essence in today's high-paced world. Tamara Steffens said it best: "Assume you have 90 seconds with a new user before they decide to use your app or delete it". This is especially true for mobile apps, where users are often overwhelmed with choices and easily become disinterested. It's essential to make a good first impression and engage users in a short period of time. Every second counts when it comes to user retention and satisfaction.
+Where should you look for happiness? Within yourself. Or, as Agnes Repplier said, "It is not easy to find happiness in ourselves, and it is not possible to find it elsewhere." This quote encourages us to look within ourselves to find true and lasting happiness. This is important because it reminds us that we are the only ones who can choose how to make ourselves happy. Happiness is not something that can be found in material items or external relationships - it must come from within.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Starting a business is a difficult and often daunting task. However, with the power of the internet and the speed of innovation, it presents new opportunities for entrepreneurs. As Matt Mickiewicz said: "The pace of change for entrepreneurs is rapidly accelerating, and the cost and risk of launching a new business and getting off the ground is just amazing. The ability to gain user feedback quickly and adapt to what your consumers want is totally different with the web as it is now". With the right tools and resources, entrepreneurs can turn their ideas into a reality.
+What are we made of? We are made of our habits. Or, as Aristotle said, "We are what we repeatedly do. Excellence, therefore, is not an act but a habit." This quote emphasizes that it is our habits that shape our character, not single actions. This is important to our daily lives because we become who we are through the habits we develop. To become our best selves, we must focus on developing habits that lead to excellence.
 
 <!-- </quote> -->
 

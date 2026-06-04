@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What are we made of? We are made of our habits. Or, as Aristotle said, "We are what we repeatedly do. Excellence, therefore, is not an act but a habit." This quote emphasizes that it is our habits that shape our character, not single actions. This is important to our daily lives because we become who we are through the habits we develop. To become our best selves, we must focus on developing habits that lead to excellence.
+We all want to achieve success, but it's often easier said than done. As Howard Schultz said: "Risk more than others think is safe. Dream more than others think is practical." It's a difficult balance, but it's essential to reach our goals. Take risks, dare to dream and don't be afraid to reach for the stars.
 
 <!-- </quote> -->
 

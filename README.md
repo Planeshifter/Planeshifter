@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all want to achieve success, but it's often easier said than done. As Howard Schultz said: "Risk more than others think is safe. Dream more than others think is practical." It's a difficult balance, but it's essential to reach our goals. Take risks, dare to dream and don't be afraid to reach for the stars.
+We live in an age of opportunity, but it’s up to us to make the most of it. As Seth Godin said: "There’s no shortage of remarkable ideas, what’s missing is the will to execute them." We need to be bold and brave in order to make our dreams a reality.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What's the best way to get to happiness? By traveling in a happy manner! Or, as Margaret Lee Runbeck said, "Happiness is not a state to arrive at, but a manner of traveling." This quote encourages us to find joy in our journey and to be mindful of the present moment. This quote relates to our daily life in that it reminds us to live in the moment and appreciate the decisions we make during our journey, which can lead us to a more fulfilling and content life.
+True success is not defined by the number of possessions or accolades. Rather, Christopher Morley put it best when he said, “There is only one success- to be able to spend your life in your own way." Live life on your own terms and take control of your own destiny.
 
 <!-- </quote> -->
 

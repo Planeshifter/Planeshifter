@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-If you want to understand what your customer really needs, the best way is to ask them. As Lisa Stone said, “Don’t tell. Ask.” By asking your customers what they want and need, you are more likely to offer them a product or service that will meet their needs and make them happy.
+We can all achieve greatness. As Dr. Napoleon Hill said: "Whatever the mind can conceive and believe, the mind can achieve". It is our beliefs that shape our success, and with the right mindset, we can reach our goals. Having a strong sense of self-belief and faith is essential in order to reach our potential.
 
 <!-- </quote> -->
 

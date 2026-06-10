@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We can all achieve greatness. As Dr. Napoleon Hill said: "Whatever the mind can conceive and believe, the mind can achieve". It is our beliefs that shape our success, and with the right mindset, we can reach our goals. Having a strong sense of self-belief and faith is essential in order to reach our potential.
+Nothing is impossible. Ben Weissenstein was spot on when he said “Everything started as nothing”. This means that with hard work, dedication, and the right mindset, we can achieve anything. Don’t be afraid to start - opportunities are everywhere, you just have to find them and take the first step.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Nothing is impossible. Ben Weissenstein was spot on when he said “Everything started as nothing”. This means that with hard work, dedication, and the right mindset, we can achieve anything. Don’t be afraid to start - opportunities are everywhere, you just have to find them and take the first step.
+Our future is in our hands. As Mark Twain said: "Twenty years from now you will be more disappointed by the things that you didn’t do than by the ones you did do." We need to take risks and not be afraid of failing - because that's the only way to reach success.
 
 <!-- </quote> -->
 

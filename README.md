@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Our future is in our hands. As Mark Twain said: "Twenty years from now you will be more disappointed by the things that you didn’t do than by the ones you did do." We need to take risks and not be afraid of failing - because that's the only way to reach success.
+When starting a business, it's essential to plan for the unexpected. As Richard Harroch, Venture Capitalist, puts it: "It’s almost always harder to raise capital than you thought it would be, and it always takes longer. So plan for that." It's important to give yourself enough time and have a backup plan in case things take longer than expected.
 
 <!-- </quote> -->
 

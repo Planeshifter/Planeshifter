@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-When starting a business, it's essential to plan for the unexpected. As Richard Harroch, Venture Capitalist, puts it: "It’s almost always harder to raise capital than you thought it would be, and it always takes longer. So plan for that." It's important to give yourself enough time and have a backup plan in case things take longer than expected.
+Success requires us to take risks and try new things, even if it means making mistakes along the way. As Thomas J. Watson said: “Double your rate of failure. You are thinking of failure as the enemy of success. But it isn’t at all. You can be discouraged by failure or you can learn from it, so go ahead and make mistakes. Make all you can. Because remember that’s where you will find success.” Embrace failure as a learning opportunity and success will eventually come.
 
 <!-- </quote> -->
 

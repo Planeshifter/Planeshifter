@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-There's no time like the present. As Emil Motycka said: "Start today, not tomorrow. If anything, you should have started yesterday." Procrastination is a thief of time, and every moment is an opportunity to take action, learn, and grow. Don't wait for tomorrow to do what you can do today.
+Enduring success is hard to come by. As Jim Collins said: "The challenge is not just to build a company that can endure; but to build one that is worthy of enduring." It takes more than just strength and resilience - it takes a commitment to excellence and integrity. Companies that can rise to this challenge can stand the test of time.
 
 <!-- </quote> -->
 

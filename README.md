@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Enduring success is hard to come by. As Jim Collins said: "The challenge is not just to build a company that can endure; but to build one that is worthy of enduring." It takes more than just strength and resilience - it takes a commitment to excellence and integrity. Companies that can rise to this challenge can stand the test of time.
+Leadership is about more than just telling people what to do. It's about doing the right thing even when no one is watching. As George Van Valkenburg said, "Leadership is doing what is right when no one is watching." That takes real courage and self-discipline, and it's what sets great leaders apart from the rest.
 
 <!-- </quote> -->
 

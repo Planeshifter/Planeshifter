@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Leadership is about more than just telling people what to do. It's about doing the right thing even when no one is watching. As George Van Valkenburg said, "Leadership is doing what is right when no one is watching." That takes real courage and self-discipline, and it's what sets great leaders apart from the rest.
+Failure is not the end. As Robert T. Kiyosaki said: "Failure defeats losers, failure inspires winners". We should not be afraid to take risks, as it is from our mistakes that we can learn and grow. Only then can we be successful.
 
 <!-- </quote> -->
 

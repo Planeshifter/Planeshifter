@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Failure is not the end. As Robert T. Kiyosaki said: "Failure defeats losers, failure inspires winners". We should not be afraid to take risks, as it is from our mistakes that we can learn and grow. Only then can we be successful.
+Dreams don't just come true; we have to take action to make them happen. As the Chinese Proverb goes: "Don’t stand by the water and long for fish; go home and weave a net." Taking the initiative and being proactive are essential in achieving success.
 
 <!-- </quote> -->
 

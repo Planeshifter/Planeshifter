@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Dreams don't just come true; we have to take action to make them happen. As the Chinese Proverb goes: "Don’t stand by the water and long for fish; go home and weave a net." Taking the initiative and being proactive are essential in achieving success.
+Success requires action, not just words. As Andrew Fashion says: "Make it happen now, not tomorrow. Tomorrow is a loser’s excuse." We need to take ownership of our lives and take action to reach our goals. There's no time to wait or procrastinate. Now is the time.
 
 <!-- </quote> -->
 

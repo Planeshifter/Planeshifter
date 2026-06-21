@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No man is an island. As the Chinese proverb says: "Make happy those who are near, and those who are far will come". Our connections to the people around us are essential to our overall contentment and success, so it's important to nurture them.
+Success is not something we should take for granted. As Bill Gates said: "Success is a lousy teacher. It seduces smart people into thinking they can't lose". We should always remember that there is room for improvement, and that failure can be a valuable teacher if we learn from it.
 
 <!-- </quote> -->
 

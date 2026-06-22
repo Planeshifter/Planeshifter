@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is not something we should take for granted. As Bill Gates said: "Success is a lousy teacher. It seduces smart people into thinking they can't lose". We should always remember that there is room for improvement, and that failure can be a valuable teacher if we learn from it.
+You can't expect to be successful if you don't take action. As Johann Wolfgang von Goethe said, "What is not started will never get finished". Taking the first step is essential to achieving anything in life. Don't let the fear of failure hold you back; start now and success will follow.
 
 <!-- </quote> -->
 

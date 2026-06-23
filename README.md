@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You can't expect to be successful if you don't take action. As Johann Wolfgang von Goethe said, "What is not started will never get finished". Taking the first step is essential to achieving anything in life. Don't let the fear of failure hold you back; start now and success will follow.
+If you are content with the status quo, you are more likely to escape criticism. As Aristotle said: "There is only one way to avoid criticism: Do nothing, say nothing, and be nothing". However, staying idle is not a recipe for success. To reach our goals, we need to take risks, speak up, and be proactive.
 
 <!-- </quote> -->
 

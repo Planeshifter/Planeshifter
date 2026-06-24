@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-If you are content with the status quo, you are more likely to escape criticism. As Aristotle said: "There is only one way to avoid criticism: Do nothing, say nothing, and be nothing". However, staying idle is not a recipe for success. To reach our goals, we need to take risks, speak up, and be proactive.
+Are our accomplishments really what matters? No, our aspirations do. Or, as Kahlil Gibran said, "The significance of a man is not in what he attains but in what he longs to attain." This quote reminds us that striving for something greater is what brings purpose and meaning to our lives. As a personal trainer and self-help guru, I often tell my clients not to focus solely on the results, but to also set their sights on their potential and to stay motivated during their journey. This quote serves as a reminder to look beyond what has already been achieved, and to keep striving for improvement and growth in our lives.
 
 <!-- </quote> -->
 

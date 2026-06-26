@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Social media has become an important tool for connecting with others. As Matthew Inman said, “building and hanging on to an audience is the biggest role of social media.”We must use it in a way that builds and nurtures relationships, creating strong networks that support our goals.
+Make sure to never let self doubt stand in your way. As Theodore Roosevelt said: "Whenever you are asked if you can do a job, tell 'em, 'Certainly, I can!' Then get busy and find out how to do it." It's always important to have a positive attitude and never give up on achieving your goals.
 
 <!-- </quote> -->
 

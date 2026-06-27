@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Make sure to never let self doubt stand in your way. As Theodore Roosevelt said: "Whenever you are asked if you can do a job, tell 'em, 'Certainly, I can!' Then get busy and find out how to do it." It's always important to have a positive attitude and never give up on achieving your goals.
+Robert Orben's quote is a reminder to stay focused on our goals. He said it best: "Every day I get up and look through the Forbes list of the richest people in America. If I’m not there, I go to work." That's the spirit of ambition and drive that will get us to where we want to be.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Robert Orben's quote is a reminder to stay focused on our goals. He said it best: "Every day I get up and look through the Forbes list of the richest people in America. If I’m not there, I go to work." That's the spirit of ambition and drive that will get us to where we want to be.
+We live in a world where knowledge and technology are becoming increasingly important. As Bill Gates said: "Be nice to geeks, you'll probably end up working for one". We should respect the intelligence and hard work of the geeks that contribute to the advancement of our society.
 
 <!-- </quote> -->
 

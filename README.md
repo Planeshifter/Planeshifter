@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We live in a world where knowledge and technology are becoming increasingly important. As Bill Gates said: "Be nice to geeks, you'll probably end up working for one". We should respect the intelligence and hard work of the geeks that contribute to the advancement of our society.
+Success is a matter of believing in yourself. As the saying goes, "Believe that you will succeed ― and you will". Believe in yourself and you'll be able to accomplish anything you set your mind to. Don't be discouraged by setbacks or mistakes and stay focused on your goals. With the right attitude and effort, you can achieve success.
 
 <!-- </quote> -->
 

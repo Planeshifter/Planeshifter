@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is a matter of believing in yourself. As the saying goes, "Believe that you will succeed ― and you will". Believe in yourself and you'll be able to accomplish anything you set your mind to. Don't be discouraged by setbacks or mistakes and stay focused on your goals. With the right attitude and effort, you can achieve success.
+What has a dream but must be done on time? A goal. Or, as Napoleon Hill said, "A goal is a dream with a deadline." This means that when you set a goal, you need to make sure you work to attain it before the deadline you set for yourself. This quote is important because it emphasizes the importance of setting a timeline for goals in order to hold yourself accountable and make sure that you are taking action towards achieving them.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What has a dream but must be done on time? A goal. Or, as Napoleon Hill said, "A goal is a dream with a deadline." This means that when you set a goal, you need to make sure you work to attain it before the deadline you set for yourself. This quote is important because it emphasizes the importance of setting a timeline for goals in order to hold yourself accountable and make sure that you are taking action towards achieving them.
+What is more important, the journey or the destination? The journey. Or, as Richard Monckton Milnes said, "The virtue lies in the struggle, not in the prize." This quote highlights the importance of the journey one takes to reach their goals, rather than focusing solely on the end result. We can't forget the process of getting there and the learning experiences, relationships, and personal growth that come with the struggle. Applying this to our daily life, it’s important to stay mindful and be present throughout our journey in achieving our goals, rather than just focusing on the end result of success.
 
 <!-- </quote> -->
 

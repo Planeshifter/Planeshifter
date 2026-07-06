@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all want to be surrounded by good people. As Booker T. Washington put it: "It is better to be alone than in bad company." It is important to choose our friends and associates wisely, as the quality of them will have an impact on our lives.
+Why can't you please everyone? You can't please everyone. Or, as Herbert Bayard Swope said, "I cannot give you the formula for success, but I can give you the formula for failure - which is: Try to please everybody." This quote recognizes that it is generally not possible to please everyone and that trying to do so can be a recipe for failure. It reminds us to stay focused on our own goals and not worry too much about what others think. In our daily lives, this quote reminds us to stay true to ourselves and our values, rather than trying to live up to everyone else's expectations.
 
 <!-- </quote> -->
 

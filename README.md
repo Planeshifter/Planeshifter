@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Why can't you please everyone? You can't please everyone. Or, as Herbert Bayard Swope said, "I cannot give you the formula for success, but I can give you the formula for failure - which is: Try to please everybody." This quote recognizes that it is generally not possible to please everyone and that trying to do so can be a recipe for failure. It reminds us to stay focused on our own goals and not worry too much about what others think. In our daily lives, this quote reminds us to stay true to ourselves and our values, rather than trying to live up to everyone else's expectations.
+Past successes don't guarantee future success. As Babe Ruth said: "Yesterday's home runs don't win today's games". We must keep working hard and pushing ourselves in order to stay ahead. We can't rest on our laurels and expect to get by - we must have the drive and determination to move forward.
 
 <!-- </quote> -->
 

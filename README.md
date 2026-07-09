@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We live in a world where knowledge and technology are becoming increasingly important. As Bill Gates said: "Be nice to geeks, you'll probably end up working for one". We should respect the intelligence and hard work of the geeks that contribute to the advancement of our society.
+Business isn't about taking but giving. Robert Bosch captures this perfectly in his quote: "I don’t pay good wages because I have a lot of money; I have a lot of money because I pay good wages." Good wages should be a priority for any successful business. Workers who are paid well tend to be more motivated and productive, which leads to greater profits for the business.
 
 <!-- </quote> -->
 

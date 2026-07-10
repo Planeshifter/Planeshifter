@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Business isn't about taking but giving. Robert Bosch captures this perfectly in his quote: "I don’t pay good wages because I have a lot of money; I have a lot of money because I pay good wages." Good wages should be a priority for any successful business. Workers who are paid well tend to be more motivated and productive, which leads to greater profits for the business.
+Money doesn't buy happiness, not even a nice car. As the saying goes: You don’t buy a nice car and get rich you get rich and buy a nice car. Achieving financial security should be our goal and a nice car should be the cherry on top. Money should not be our main focus.
 
 <!-- </quote> -->
 

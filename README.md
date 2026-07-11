@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Money doesn't buy happiness, not even a nice car. As the saying goes: You don’t buy a nice car and get rich you get rich and buy a nice car. Achieving financial security should be our goal and a nice car should be the cherry on top. Money should not be our main focus.
+Dreams don't come true without hard work. Adam Horwitz understood this when he said: "All of my friends were doing babysitting jobs. I wanted money without the job." It takes dedication and perseverance to achieve success. We must be willing to put in the effort to make our dreams come true.
 
 <!-- </quote> -->
 

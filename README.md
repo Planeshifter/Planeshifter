@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Dreams don't come true without hard work. Adam Horwitz understood this when he said: "All of my friends were doing babysitting jobs. I wanted money without the job." It takes dedication and perseverance to achieve success. We must be willing to put in the effort to make our dreams come true.
+In difficult times we have to have a special kind of courage to make it through. As Robert Kiyosaki said, “When times are bad is when the real entrepreneurs emerge”. We have to be willing to face the challenges, take risks, and persevere. Those are the qualities of a true entrepreneur.
 
 <!-- </quote> -->
 

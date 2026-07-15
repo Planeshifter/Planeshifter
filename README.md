@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No matter how big your dreams are, it’s important to focus on the present and make sure that you are doing everything you can to serve one customer at a time. As Gary Comer said, “Worry about being better; bigger will take care of itself. Think one customer at a time and take care of each one the best way you can.”
+Nothing worthwhile ever comes easy. As Sean Parker said: "Running a start-up is like eating glass. You just start to like the taste of your own blood." It takes an immense amount of dedication and hard work to achieve success in a start-up. But with the right motivation and commitment, we can overcome any challenge and reach our destination.
 
 <!-- </quote> -->
 

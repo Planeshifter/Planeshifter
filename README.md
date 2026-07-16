@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Nothing worthwhile ever comes easy. As Sean Parker said: "Running a start-up is like eating glass. You just start to like the taste of your own blood." It takes an immense amount of dedication and hard work to achieve success in a start-up. But with the right motivation and commitment, we can overcome any challenge and reach our destination.
+No matter how hard we try, mistakes are inevitable. But rather than running away from them, we should welcome them as an opportunity to learn and grow. As Bill Gates said: "Your most unhappy customers are your greatest source of learning". We can use the feedback provided by people to improve our products and services.
 
 <!-- </quote> -->
 

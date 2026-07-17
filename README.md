@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No matter how hard we try, mistakes are inevitable. But rather than running away from them, we should welcome them as an opportunity to learn and grow. As Bill Gates said: "Your most unhappy customers are your greatest source of learning". We can use the feedback provided by people to improve our products and services.
+What good is creativity, if you can't sell it? That's what David Ogilvy said. Or, as David Ogilvy said, "In the modern world of business, it is useless to be a creative, original thinker unless you can also sell what you create." This means that having an idea is great, but if you can't market it and make it profitable, then it won't be of any use to you. This quote is important to you because it encourages you to not only have creative ideas, but to also think about how to turn them into profitable businesses. Being able to recognize a great idea and then effectively market it so it can be successful is a skill that will be valuable to you in both your personal and professional life.
 
 <!-- </quote> -->
 

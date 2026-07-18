@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What good is creativity, if you can't sell it? That's what David Ogilvy said. Or, as David Ogilvy said, "In the modern world of business, it is useless to be a creative, original thinker unless you can also sell what you create." This means that having an idea is great, but if you can't market it and make it profitable, then it won't be of any use to you. This quote is important to you because it encourages you to not only have creative ideas, but to also think about how to turn them into profitable businesses. Being able to recognize a great idea and then effectively market it so it can be successful is a skill that will be valuable to you in both your personal and professional life.
+Karl (maybe Groucho) Marx was right when he said: "Catch a man a fish, and you can sell it to him. Teach a man to fish, and you ruin a wonderful business opportunity". It’s easy to provide a quick fix to a problem, but if you give someone the tools to solve it themselves, they won’t need to come back to you. It’s important not to make the mistake of giving away too much.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Karl (maybe Groucho) Marx was right when he said: "Catch a man a fish, and you can sell it to him. Teach a man to fish, and you ruin a wonderful business opportunity". It’s easy to provide a quick fix to a problem, but if you give someone the tools to solve it themselves, they won’t need to come back to you. It’s important not to make the mistake of giving away too much.
+Enduring success is hard to come by. As Jim Collins said: "The challenge is not just to build a company that can endure; but to build one that is worthy of enduring." It takes more than just strength and resilience - it takes a commitment to excellence and integrity. Companies that can rise to this challenge can stand the test of time.
 
 <!-- </quote> -->
 

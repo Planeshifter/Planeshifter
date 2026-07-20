@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Enduring success is hard to come by. As Jim Collins said: "The challenge is not just to build a company that can endure; but to build one that is worthy of enduring." It takes more than just strength and resilience - it takes a commitment to excellence and integrity. Companies that can rise to this challenge can stand the test of time.
+Business isn't about taking but giving. Robert Bosch captures this perfectly in his quote: "I don’t pay good wages because I have a lot of money; I have a lot of money because I pay good wages." Good wages should be a priority for any successful business. Workers who are paid well tend to be more motivated and productive, which leads to greater profits for the business.
 
 <!-- </quote> -->
 

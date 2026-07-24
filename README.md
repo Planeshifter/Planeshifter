@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No one can deny the importance of a good education. However, Jim Rohn, the author and speaker, points out that education should not be limited to the classroom. He says: "Formal education will make you a living; self-education will make you a fortune." Self-education is just as necessary and can be the difference between a good life and a great one.
+Why take a chance when you can stay safe? To live a fulfilling life. Or, as Ilka Chase said, "The only people who never fail are those who never try." This highlights the importance of taking risks and trying new things in order to succeed and grow. This quote is important to me because it reminds me to take risks and try new things in order to discover more about myself and the world around me.
 
 <!-- </quote> -->
 

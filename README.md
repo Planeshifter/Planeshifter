@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-As the old saying goes, "If at first you don't succeed, try, try again." This is the sentiment behind the quote by Reid Hoffman, "Nine out of ten businesses fail; so I came up with a foolproof plan ― create ten businesses." The idea of creating multiple businesses is an excellent one - if one fails, you may still have other ventures to fall back on. With hard work and dedication, the odds of success increase. Quote: “It’s not who you are that holds you back, it’s who you think you’re not.” ― Denis Waitley
+Sometimes we can't undo the opportunities missed in the past. As the Chinese proverb states: "The best time to plant a tree is twenty years ago. The second best time is now." We must make the most of our current situation and take advantage of the opportunities in front of us.
 
 <!-- </quote> -->
 

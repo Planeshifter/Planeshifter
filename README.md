@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Sometimes we can't undo the opportunities missed in the past. As the Chinese proverb states: "The best time to plant a tree is twenty years ago. The second best time is now." We must make the most of our current situation and take advantage of the opportunities in front of us.
+Yoda's words of wisdom remind us that there is no room for excuses. As he said: "Do or do not. There is no try". We must be willing to take risks and commit to a course of action if we are serious about achieving success. Otherwise, our efforts will amount to nothing.
 
 <!-- </quote> -->
 

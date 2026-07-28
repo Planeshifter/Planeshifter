@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Yoda's words of wisdom remind us that there is no room for excuses. As he said: "Do or do not. There is no try". We must be willing to take risks and commit to a course of action if we are serious about achieving success. Otherwise, our efforts will amount to nothing.
+We all want to be successful, but it's important to remember that success is not the only measure of worth. As Albert Einstein said: "Try not to be a man of success, but rather try to become a man of value." Being of value to society is the true measure of success. We should strive to make meaningful contributions to the world, rather than just pursuing fame and fortune.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all want to be successful, but it's important to remember that success is not the only measure of worth. As Albert Einstein said: "Try not to be a man of success, but rather try to become a man of value." Being of value to society is the true measure of success. We should strive to make meaningful contributions to the world, rather than just pursuing fame and fortune.
+Business isn't about taking but giving. Robert Bosch captures this perfectly in his quote: "I don’t pay good wages because I have a lot of money; I have a lot of money because I pay good wages." Good wages should be a priority for any successful business. Workers who are paid well tend to be more motivated and productive, which leads to greater profits for the business.
 
 <!-- </quote> -->
 

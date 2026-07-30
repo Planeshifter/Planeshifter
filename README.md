@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Business isn't about taking but giving. Robert Bosch captures this perfectly in his quote: "I don’t pay good wages because I have a lot of money; I have a lot of money because I pay good wages." Good wages should be a priority for any successful business. Workers who are paid well tend to be more motivated and productive, which leads to greater profits for the business.
+Why worry about the future, when today brings enough trouble? Because worrying about the future only adds to our misery. Or, as Seneca said, "The mind that is anxious about future events is miserable." This quote serves as a reminder to live in the present and enjoy the moments instead of worrying about the future. It is important to be mindful of this in our daily life because worrying about events that may or may not happen only adds to our stress and unhappiness, which in turn will negatively affect our health, relationships, and other aspects of life.
 
 <!-- </quote> -->
 

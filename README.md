@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What's the key to success? Knowing something no one else knows. Or, as Aristotle Onassis said, "The secret of success is to know something nobody else knows." This implies the importance of having knowledge or skills that are rare and valuable. This quote is incredibly relevant in today's world, as having that extra knowledge or skill can help you stand out in a competitive job market or lead to success in other areas of life.
+It's easy to doubt those who are trying to achieve greatness. As the Chinese Proverb says: "A person who says it cannot be done should not interrupt the man doing it." We should instead show our support and help those who are brave enough to pursue their dreams.
 
 <!-- </quote> -->
 

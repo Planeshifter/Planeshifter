@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's easy to doubt those who are trying to achieve greatness. As the Chinese Proverb says: "A person who says it cannot be done should not interrupt the man doing it." We should instead show our support and help those who are brave enough to pursue their dreams.
+We all have a finite amount of time to create the life we want. As Steve Jobs said: "Your time is limited, so don’t waste it living someone else’s life. Don’t be trapped by dogma ― which is living with the results of other people’s thinking. Don’t let the noise of other’s opinions drown out your own inner voice. And most important, have the courage to follow your heart and intuition. They somehow already know what you truly want to become. Everything else is secondary.” Make sure you take the time to listen to your intuition, and then take the steps necessary to make it come alive.
 
 <!-- </quote> -->
 

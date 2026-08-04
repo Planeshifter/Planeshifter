@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Education is an investment in the future. As Derek Bok said, "If you think education is expensive, try ignorance". Not educating oneself can cost much more in the long run. Investing in knowledge, skills and experience will build a solid foundation for success.
+No matter how hard life can get, there's always a way out. As the saying goes: "If plan ‘A’ fails ― remember you have 25 letters left". It's a reminder that we should never give up and always keep looking for alternative solutions. There's always hope and the possibility to turn our situation around.
 
 <!-- </quote> -->
 

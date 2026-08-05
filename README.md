@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No matter how hard life can get, there's always a way out. As the saying goes: "If plan ‘A’ fails ― remember you have 25 letters left". It's a reminder that we should never give up and always keep looking for alternative solutions. There's always hope and the possibility to turn our situation around.
+Success isn't always about being the best for everyone. According to Ron Shaich, founder and CEO of Panera Bread, “If you can do something to get somebody excited — not everybody — but if you can be the best for somebody, then you can win.” This means that if you focus on being the best for the people who matter, you will be successful.
 
 <!-- </quote> -->
 

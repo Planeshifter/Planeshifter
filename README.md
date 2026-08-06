@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success isn't always about being the best for everyone. According to Ron Shaich, founder and CEO of Panera Bread, “If you can do something to get somebody excited — not everybody — but if you can be the best for somebody, then you can win.” This means that if you focus on being the best for the people who matter, you will be successful.
+It's better to take a risk than to ask for permission. As Grace Hopper said, "It’s easier to ask forgiveness than it is to get permission". Taking calculated risks can open the door to opportunities that would otherwise be unavailable. However, you must make sure you are willing to be accountable for the consequences of your decisions.
 
 <!-- </quote> -->
 

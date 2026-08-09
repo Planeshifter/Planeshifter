@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success requires us to take risks and try new things, even if it means making mistakes along the way. As Thomas J. Watson said: “Double your rate of failure. You are thinking of failure as the enemy of success. But it isn’t at all. You can be discouraged by failure or you can learn from it, so go ahead and make mistakes. Make all you can. Because remember that’s where you will find success.” Embrace failure as a learning opportunity and success will eventually come.
+Success does not come without effort. As Charles F. Kettering said: "Keep on going, and the chances are that you will stumble on something, perhaps when you are least expecting it. I never heard of anyone ever stumbling on something sitting down." We must stay positive and keep pushing even when progress is slow, for it is only through hard work and perseverance that we can achieve our goals.
 
 <!-- </quote> -->
 

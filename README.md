@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success does not come without effort. As Charles F. Kettering said: "Keep on going, and the chances are that you will stumble on something, perhaps when you are least expecting it. I never heard of anyone ever stumbling on something sitting down." We must stay positive and keep pushing even when progress is slow, for it is only through hard work and perseverance that we can achieve our goals.
+We live in a world of endless opportunities, but it's important to remember that we should not take on too much. As the German Proverb says: “He who begins many things finishes but few”. It is important to focus on our goals and limit distractions so that we can achieve success.
 
 <!-- </quote> -->
 

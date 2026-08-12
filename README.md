@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's better to take a risk than to ask for permission. As Grace Hopper said, "It’s easier to ask forgiveness than it is to get permission". Taking calculated risks can open the door to opportunities that would otherwise be unavailable. However, you must make sure you are willing to be accountable for the consequences of your decisions.
+You can't give up when you face adversity. As the Japanese proverb says, "Fall seven times and stand up eight". We have to persevere in times of trouble and never give up. We must take on every challenge with courage and determination.
 
 <!-- </quote> -->
 

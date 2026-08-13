@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You can't give up when you face adversity. As the Japanese proverb says, "Fall seven times and stand up eight". We have to persevere in times of trouble and never give up. We must take on every challenge with courage and determination.
+Do we ever really get what we pay for? This thought-provoking quote by Steven Wright says it all: "Ever notice how it’s a penny for your thoughts, yet you put in your two-cents? Someone is making a penny on the deal." We might think we're getting a good deal, but in reality, we're usually paying more than we realize.
 
 <!-- </quote> -->
 

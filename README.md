@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You can't always get what you want. As the Chinese proverb says: "All cats love fish but fear to wet their paws". We may be tempted by something, but if it means taking a risk, we may be more cautious. We need to be brave and take a chance if we want to achieve our goals.
+What is entrepreneurship? It is a practice. Or, as Peter Drucker said, "Entrepreneurship is neither a science nor an art. It is a practice." This quote encourages us to focus on the doing—that is, putting into practice the things we learn, instead of just studying them. Practicing entrepreneurship is key in order to catalyze growth and find success. This quote is important to me as a personal trainer and self-help guru because it emphasizes the importance of putting into practice the advice and information I provide to those I work with, rather than simply teaching them. This helps ensure that my clients are able to use the knowledge I give them to become successful.
 
 <!-- </quote> -->
 

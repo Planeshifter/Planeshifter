@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No matter how scared we are, we cannot let the fear of failure stop us from achieving our dreams. As Kevin Plank, CEO of Under Armour said: "There’s an entrepreneur right now, scared to death, making excuses, saying, ‘It’s not the right time just yet.’ There’s no such thing as a good time. Get out of your garage and go take a chance, and start your business." We can't wait for the ideal circumstances to take a shot at success. We must take the plunge and make our own luck. Quote: "You can't connect the dots looking forward; you can only connect them looking backwards. So you have to trust that the dots will somehow connect in your future. ― Steve Jobs
+Making your dreams come true takes a lot of hard work and dedication. As Nolan Bushnell said: "The critical ingredient is getting off your butt and doing something." Having an idea is easy, but it's only when you decide to take action and do something that your dreams become reality. Taking the first step is hard, but it's the only way to make progress. So don't waste time and start today!
 
 <!-- </quote> -->
 

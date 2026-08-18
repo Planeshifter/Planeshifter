@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Making your dreams come true takes a lot of hard work and dedication. As Nolan Bushnell said: "The critical ingredient is getting off your butt and doing something." Having an idea is easy, but it's only when you decide to take action and do something that your dreams become reality. Taking the first step is hard, but it's the only way to make progress. So don't waste time and start today!
+Where should you look to keep going? Upward! Or, as Charlotte Bronte said, "I avoid looking forward or backward, and try to keep looking upward." This quote emphasizes the importance of staying focused on the future and looking ahead, instead of dwelling on the past. This is important to keep in mind, as focusing on the future instead of the past can lead to greater success and improved well-being.
 
 <!-- </quote> -->
 

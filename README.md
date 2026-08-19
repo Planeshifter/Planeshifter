@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Where should you look to keep going? Upward! Or, as Charlotte Bronte said, "I avoid looking forward or backward, and try to keep looking upward." This quote emphasizes the importance of staying focused on the future and looking ahead, instead of dwelling on the past. This is important to keep in mind, as focusing on the future instead of the past can lead to greater success and improved well-being.
+You can't always get what you want. As the Chinese proverb says: "All cats love fish but fear to wet their paws". We may be tempted by something, but if it means taking a risk, we may be more cautious. We need to be brave and take a chance if we want to achieve our goals.
 
 <!-- </quote> -->
 

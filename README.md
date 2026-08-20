@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You can't always get what you want. As the Chinese proverb says: "All cats love fish but fear to wet their paws". We may be tempted by something, but if it means taking a risk, we may be more cautious. We need to be brave and take a chance if we want to achieve our goals.
+No matter how hard we try, mistakes are inevitable. But rather than running away from them, we should welcome them as an opportunity to learn and grow. As Bill Gates said: "Your most unhappy customers are your greatest source of learning". We can use the feedback provided by people to improve our products and services.
 
 <!-- </quote> -->
 

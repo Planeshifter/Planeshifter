@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No matter how hard we try, mistakes are inevitable. But rather than running away from them, we should welcome them as an opportunity to learn and grow. As Bill Gates said: "Your most unhappy customers are your greatest source of learning". We can use the feedback provided by people to improve our products and services.
+Dreaming big is essential for success. As Donald Trump said: "As long as you're going to be thinking anyway, think big." Having a larger-than-life vision is the starting point of reaching our goals. We must be willing to take risks and think outside the box to make our dreams a reality.
 
 <!-- </quote> -->
 

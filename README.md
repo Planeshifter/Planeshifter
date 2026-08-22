@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Dreaming big is essential for success. As Donald Trump said: "As long as you're going to be thinking anyway, think big." Having a larger-than-life vision is the starting point of reaching our goals. We must be willing to take risks and think outside the box to make our dreams a reality.
+What is the key to success? Taking risks. Or, as John F. Kennedy said, “Only those who dare to fail greatly can ever achieve greatly.” This speaks to the idea that unless we take risks, we cannot experience success in our lives. This quote reminds us to take risks if we want to achieve great things and not let the fear of failure hold us back.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is the key to success? Taking risks. Or, as John F. Kennedy said, “Only those who dare to fail greatly can ever achieve greatly.” This speaks to the idea that unless we take risks, we cannot experience success in our lives. This quote reminds us to take risks if we want to achieve great things and not let the fear of failure hold us back.
+Education is key to success, but it doesn't have to be a formal process. As Mitch Hedberg said: “I didn’t go to college, but if I did, I would’ve taken all my tests at a restaurant, ’cause ‘The customer is always right.’” This quote teaches us that we can gain knowledge from any environment, as long as we approach it with an open mind and a willingness to learn.
 
 <!-- </quote> -->
 

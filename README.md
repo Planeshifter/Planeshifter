@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We should never rely too much on our plans. As Dwight D. Eisenhower said: "In preparing for battle I have always found that plans are useless, but planning is indispensable". Even if plans can fail, the process of planning will help us prepare for any eventuality.
+We can achieve great things if we only believe in ourselves and our abilities. As Franklin D. Roosevelt once said: "The only limit to our realization of tomorrow will be our doubts of today". It's important to have faith in our dreams, and never give up on them.
 
 <!-- </quote> -->
 

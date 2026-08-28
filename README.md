@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We can achieve great things if we only believe in ourselves and our abilities. As Franklin D. Roosevelt once said: "The only limit to our realization of tomorrow will be our doubts of today". It's important to have faith in our dreams, and never give up on them.
+Words have the power to create or destroy relationships. As John Rampton said: "You can say anything to anyone, but how you say it will determine how they will react". Whether we are talking to friends, family or colleagues, it's important to be mindful of how we communicate and to choose our words wisely.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Words have the power to create or destroy relationships. As John Rampton said: "You can say anything to anyone, but how you say it will determine how they will react". Whether we are talking to friends, family or colleagues, it's important to be mindful of how we communicate and to choose our words wisely.
+We live in an age of opportunity, but it’s up to us to make the most of it. As Seth Godin said: "There’s no shortage of remarkable ideas, what’s missing is the will to execute them." We need to be bold and brave in order to make our dreams a reality.
 
 <!-- </quote> -->
 

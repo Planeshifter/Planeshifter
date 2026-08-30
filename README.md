@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We live in an age of opportunity, but it’s up to us to make the most of it. As Seth Godin said: "There’s no shortage of remarkable ideas, what’s missing is the will to execute them." We need to be bold and brave in order to make our dreams a reality.
+Success comes from taking action. As William B. Sprague said "Do not wait to strike until the iron is hot; but make it hot by striking". We shouldn't be waiting for the perfect moment, rather, we should create our own opportunities. The only way to achieve something is to take action and work for it.
 
 <!-- </quote> -->
 

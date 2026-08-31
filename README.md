@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success comes from taking action. As William B. Sprague said "Do not wait to strike until the iron is hot; but make it hot by striking". We shouldn't be waiting for the perfect moment, rather, we should create our own opportunities. The only way to achieve something is to take action and work for it.
+What is worse than failing? Never trying to succeed. Or, as Theodore Roosevelt said, "It is hard to fail, but it is worse never to have tried to succeed." This quote emphasizes the importance of taking risks and having the courage to try something new. By pushing ourselves out of our comfort zones, we can open up the possibility of achieving great things. In our daily lives, striving to reach our goals and taking risks can lead to growth and success.
 
 <!-- </quote> -->
 

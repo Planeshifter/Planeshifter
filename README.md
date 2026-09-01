@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is worse than failing? Never trying to succeed. Or, as Theodore Roosevelt said, "It is hard to fail, but it is worse never to have tried to succeed." This quote emphasizes the importance of taking risks and having the courage to try something new. By pushing ourselves out of our comfort zones, we can open up the possibility of achieving great things. In our daily lives, striving to reach our goals and taking risks can lead to growth and success.
+Prosperity is not a temporary thing. As the Chinese proverb says: "If you want one year of prosperity, grow grain. If you want ten years of prosperity, grow trees. If you want one hundred years of prosperity, grow people". True prosperity can only come from investing in our people, and in the generations to come.
 
 <!-- </quote> -->
 

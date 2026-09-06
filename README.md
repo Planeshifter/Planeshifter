@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success requires us to take risks and try new things, even if it means making mistakes along the way. As Thomas J. Watson said: “Double your rate of failure. You are thinking of failure as the enemy of success. But it isn’t at all. You can be discouraged by failure or you can learn from it, so go ahead and make mistakes. Make all you can. Because remember that’s where you will find success.” Embrace failure as a learning opportunity and success will eventually come.
+Leadership is an essential skill in life. As E.M. Kelly said: "The difference between a boss and a leadea boss says, ‘Go!’ -a leader says, ‘Let’s go!’". A leader shows enthusiasm and optimism, and people will follow if they see their leader is willing to take the journey with them.
 
 <!-- </quote> -->
 

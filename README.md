@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Leadership is an essential skill in life. As E.M. Kelly said: "The difference between a boss and a leadea boss says, ‘Go!’ -a leader says, ‘Let’s go!’". A leader shows enthusiasm and optimism, and people will follow if they see their leader is willing to take the journey with them.
+Hard work is essential to achieving success, but it’s not always easy. As Claude McDonald said, “If hard work is the key to success, most people would rather pick the lock.” Far too often, people take the easy route and try to shortcut the process. This rarely works out in the long run.
 
 <!-- </quote> -->
 

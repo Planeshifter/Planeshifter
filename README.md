@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Hard work is essential to achieving success, but it’s not always easy. As Claude McDonald said, “If hard work is the key to success, most people would rather pick the lock.” Far too often, people take the easy route and try to shortcut the process. This rarely works out in the long run.
+The key to successful living is to think for yourself. As Steve Jobs said: "Don't be trapped by dogma ― which is living with the results of other people's thinking". We should make our own decisions, and not be bounded by the opinions of others. Only then can we live with true freedom and purpose.
 
 <!-- </quote> -->
 

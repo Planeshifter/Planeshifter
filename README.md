@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-The key to successful living is to think for yourself. As Steve Jobs said: "Don't be trapped by dogma ― which is living with the results of other people's thinking". We should make our own decisions, and not be bounded by the opinions of others. Only then can we live with true freedom and purpose.
+Having a vision is not enough if we don't take any action. As the Japanese proverb says, “Vision without action is a daydream. Action without vision is a nightmare.” If we don't have a clear plan and direction, our actions will be misguided and we will never reach our goals.
 
 <!-- </quote> -->
 

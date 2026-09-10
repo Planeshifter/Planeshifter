@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Having a vision is not enough if we don't take any action. As the Japanese proverb says, “Vision without action is a daydream. Action without vision is a nightmare.” If we don't have a clear plan and direction, our actions will be misguided and we will never reach our goals.
+What fuels achievement? Goals. Or, as Brian Tracy said, "Goals are the fuel in the furnace of achievement." This quote encourages us to set goals to motivate and inspire us to reach our highest potential and achieve our ambitions. This relates to my daily life because it reminds me to set goals that will push me to continue striving towards creating the life that I want and achieving my dreams.
 
 <!-- </quote> -->
 

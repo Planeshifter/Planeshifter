@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What fuels achievement? Goals. Or, as Brian Tracy said, "Goals are the fuel in the furnace of achievement." This quote encourages us to set goals to motivate and inspire us to reach our highest potential and achieve our ambitions. This relates to my daily life because it reminds me to set goals that will push me to continue striving towards creating the life that I want and achieving my dreams.
+Life is not about reaching the top, but about how you get there. As Yvon Chouinard said, "How you climb a mountain is more important than reaching the top". This can be applied to any situation – it’s our approach and attitude that will ultimately determine our success, not just the end result.
 
 <!-- </quote> -->
 

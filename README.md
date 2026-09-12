@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is not about reaching the top, but about how you get there. As Yvon Chouinard said, "How you climb a mountain is more important than reaching the top". This can be applied to any situation – it’s our approach and attitude that will ultimately determine our success, not just the end result.
+We live in a world of endless opportunities, but it's important to remember that we should not take on too much. As the German Proverb says: “He who begins many things finishes but few”. It is important to focus on our goals and limit distractions so that we can achieve success.
 
 <!-- </quote> -->
 

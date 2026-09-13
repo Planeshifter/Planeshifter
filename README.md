@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We live in a world of endless opportunities, but it's important to remember that we should not take on too much. As the German Proverb says: “He who begins many things finishes but few”. It is important to focus on our goals and limit distractions so that we can achieve success.
+It's easy to get caught up in the end goal or finish line when it comes to achieving success. However, as Steve Wozniak reminds us, it's important to focus on each step in the journey and to give each task your best effort. When we do this, we can trust the process and have faith that the outcome will be rewarding.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's easy to get caught up in the end goal or finish line when it comes to achieving success. However, as Steve Wozniak reminds us, it's important to focus on each step in the journey and to give each task your best effort. When we do this, we can trust the process and have faith that the outcome will be rewarding.
+Success is not something we should take for granted. As Bill Gates said: "Success is a lousy teacher. It seduces smart people into thinking they can't lose". We should always remember that there is room for improvement, and that failure can be a valuable teacher if we learn from it.
 
 <!-- </quote> -->
 

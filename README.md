@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is not something we should take for granted. As Bill Gates said: "Success is a lousy teacher. It seduces smart people into thinking they can't lose". We should always remember that there is room for improvement, and that failure can be a valuable teacher if we learn from it.
+Success doesn't come easy. As Thomas Edison said: "I have not failed. I've just found 10,000 ways that won't work". This quote reminds us that we should never give up no matter how many times we fail. Mistakes can be valuable learning experiences that help us to find the right path towards our goals.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success doesn't come easy. As Thomas Edison said: "I have not failed. I've just found 10,000 ways that won't work". This quote reminds us that we should never give up no matter how many times we fail. Mistakes can be valuable learning experiences that help us to find the right path towards our goals.
+Starting a business is a difficult and often daunting task. However, with the power of the internet and the speed of innovation, it presents new opportunities for entrepreneurs. As Matt Mickiewicz said: "The pace of change for entrepreneurs is rapidly accelerating, and the cost and risk of launching a new business and getting off the ground is just amazing. The ability to gain user feedback quickly and adapt to what your consumers want is totally different with the web as it is now". With the right tools and resources, entrepreneurs can turn their ideas into a reality.
 
 <!-- </quote> -->
 

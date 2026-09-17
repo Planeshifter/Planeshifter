@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Starting a business is a difficult and often daunting task. However, with the power of the internet and the speed of innovation, it presents new opportunities for entrepreneurs. As Matt Mickiewicz said: "The pace of change for entrepreneurs is rapidly accelerating, and the cost and risk of launching a new business and getting off the ground is just amazing. The ability to gain user feedback quickly and adapt to what your consumers want is totally different with the web as it is now". With the right tools and resources, entrepreneurs can turn their ideas into a reality.
+We all have dreams and aspirations, but they can feel so far away. As the Chinese Proverb goes: "The loftiest towers rise from the ground". It's easy to get overwhelmed, but we can take comfort in knowing that anything is possible if we put in the hard work and dedication needed to make those dreams a reality.
 
 <!-- </quote> -->
 

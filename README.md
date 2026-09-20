@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success in business is not easy to achieve. As David Rockefeller said: "Success in business requires training and discipline and hard work." We must be willing to put in the effort and take on the challenge to create something truly impactful. With hard work and dedication, the opportunities are just as great today as ever before.
+Thomas Alva Edison is an epitome of determination and resilience. He said, “I have not failed. I've just found 10,000 ways that won't work.” To him, failure was just another step closer to success. He never gave up and kept trying until he achieved what he wanted. This inspiring quote shows that if you strive for success and never give up, you can eventually reach your goals.
 
 <!-- </quote> -->
 

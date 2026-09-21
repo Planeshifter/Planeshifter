@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Thomas Alva Edison is an epitome of determination and resilience. He said, “I have not failed. I've just found 10,000 ways that won't work.” To him, failure was just another step closer to success. He never gave up and kept trying until he achieved what he wanted. This inspiring quote shows that if you strive for success and never give up, you can eventually reach your goals.
+Money doesn't buy happiness, not even a nice car. As the saying goes: You don’t buy a nice car and get rich you get rich and buy a nice car. Achieving financial security should be our goal and a nice car should be the cherry on top. Money should not be our main focus.
 
 <!-- </quote> -->
 

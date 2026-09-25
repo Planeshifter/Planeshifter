@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Starting a business is no small feat and requires a great deal of passion and dedication. As Dave Thomas, founder of Wendy’s, said: "What do you need to start a business? Three simple things: know your product better than anyone, know your customer, and have a burning desire to succeed." Knowing and understanding what you’re selling, as well as who you’re selling it to, is essential to any successful business. Having the drive to succeed is the boost of motivation that will help get you to the finish line.
+Leadership is about more than just telling people what to do. It's about doing the right thing even when no one is watching. As George Van Valkenburg said, "Leadership is doing what is right when no one is watching." That takes real courage and self-discipline, and it's what sets great leaders apart from the rest.
 
 <!-- </quote> -->
 

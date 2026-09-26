@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Leadership is about more than just telling people what to do. It's about doing the right thing even when no one is watching. As George Van Valkenburg said, "Leadership is doing what is right when no one is watching." That takes real courage and self-discipline, and it's what sets great leaders apart from the rest.
+Life is too short to settle for anything less than your dreams. As Eliza Dushku said, “Go big, or go home”. Don’t be afraid to take risks and go after what you want. You’ll never know what is possible unless you try.
 
 <!-- </quote> -->
 

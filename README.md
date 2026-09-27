@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Life is too short to settle for anything less than your dreams. As Eliza Dushku said, “Go big, or go home”. Don’t be afraid to take risks and go after what you want. You’ll never know what is possible unless you try.
+Taking risks is part of being an entrepreneur. As Roy Ash once said, “An entrepreneur tends to bite off a little more than he can chew hoping he’ll quickly learn how to chew it.” Though it can be daunting to take on a challenge that seems too big to handle, it’s important to remember that you have the potential to achieve it.
 
 <!-- </quote> -->
 

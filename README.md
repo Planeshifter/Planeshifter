@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Taking risks is part of being an entrepreneur. As Roy Ash once said, “An entrepreneur tends to bite off a little more than he can chew hoping he’ll quickly learn how to chew it.” Though it can be daunting to take on a challenge that seems too big to handle, it’s important to remember that you have the potential to achieve it.
+What's the difference between success and failure? Having the will to persevere. Or, as Vince Lombardi said, "The difference between a successful person and others is not a lack of strength, not a lack of knowledge, but rather a lack in will." This quote emphasizes that having the strength and knowledge to succeed is important, but if you lack the will to persevere, you won't achieve success. This quote is important to me because it reminds me to stay focused and motivated even when I am faced with challenging tasks and to keep pushing forward even when I am feeling discouraged.
 
 <!-- </quote> -->
 

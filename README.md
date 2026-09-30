@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all make mistakes, but it's how we react to them that defines us. As Stephen Covey said, "I am not a product of my circumstances. I am a product of my decisions." We can't control what happens in our lives, but we can choose how we respond to it and how we will move forward.
+Making your dreams come true takes a lot of hard work and dedication. As Nolan Bushnell said: "The critical ingredient is getting off your butt and doing something." Having an idea is easy, but it's only when you decide to take action and do something that your dreams become reality. Taking the first step is hard, but it's the only way to make progress. So don't waste time and start today!
 
 <!-- </quote> -->
 

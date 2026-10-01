@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Making your dreams come true takes a lot of hard work and dedication. As Nolan Bushnell said: "The critical ingredient is getting off your butt and doing something." Having an idea is easy, but it's only when you decide to take action and do something that your dreams become reality. Taking the first step is hard, but it's the only way to make progress. So don't waste time and start today!
+Life without dreams is as meaningless as a starless night sky. To live fully and to find true joy, we must have dreams to strive for. As Malcolm Forbes said: "When you cease to dream you cease to live". To live life to the fullest, never forget to keep dreaming and working towards your dreams.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Success is not simply a matter of luck. As Earl Wilson said: "Success is simply a matter of luck. Ask any failure." Sure, there are many fortunate events that can play a role in our achievements, but it takes hard work, persistence and dedication to get to the top.
+There is nothing more powerful than a dream. As Malcolm Forbes said, “When you cease to dream you cease to live”. Dreams provide us with hope and motivation to strive for greatness, and without them, life would be meaningless. So never give up on your dreams and keep living.
 
 <!-- </quote> -->
 

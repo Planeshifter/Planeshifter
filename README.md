@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-There is nothing more powerful than a dream. As Malcolm Forbes said, “When you cease to dream you cease to live”. Dreams provide us with hope and motivation to strive for greatness, and without them, life would be meaningless. So never give up on your dreams and keep living.
+Success in business is not easy to achieve. As David Rockefeller said: "Success in business requires training and discipline and hard work." We must be willing to put in the effort and take on the challenge to create something truly impactful. With hard work and dedication, the opportunities are just as great today as ever before.
 
 <!-- </quote> -->
 

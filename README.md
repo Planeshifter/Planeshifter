@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Sometimes, the biggest success comes after the biggest failure. As Napoleon Hill said: "Most great people have attained their greatest success just one step beyond their greatest failure". This means that failure is often a part of the process in achieving success, and we should use it as a learning opportunity to keep moving forward.
+Failure is an essential part of success. As Jeff Bezos said: "If you want to be inventive, you have to be willing to fail". We can’t be scared of the possibility of failure. It’s only through repeated attempts that we can find our way to the right solution.
 
 <!-- </quote> -->
 

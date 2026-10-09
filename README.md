@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all have dreams and aspirations, but achieving them takes hard work and dedication. As Ryan Allis said, "Have the end in mind and every day make sure your working towards it". This means that we must focus on our goals and put in the effort each day to move closer to them. Taking consistent action is the only way to make your dreams come true.
+What must come before a masterpiece? An amateur. Or, as Ralph Waldo Emerson said, "Every artist was first an amateur." This quote reminds us that everyone starts off as a beginner and has to work hard to achieve success. It encourages us to stay humble and keep striving for improvement, no matter our current level of success. This quote is important to me because it keeps me motivated to reach my goals, and to not be discouraged by any failures or roadblocks I may face.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What must come before a masterpiece? An amateur. Or, as Ralph Waldo Emerson said, "Every artist was first an amateur." This quote reminds us that everyone starts off as a beginner and has to work hard to achieve success. It encourages us to stay humble and keep striving for improvement, no matter our current level of success. This quote is important to me because it keeps me motivated to reach my goals, and to not be discouraged by any failures or roadblocks I may face.
+Education is key to success, but it doesn't have to be a formal process. As Mitch Hedberg said: “I didn’t go to college, but if I did, I would’ve taken all my tests at a restaurant, ’cause ‘The customer is always right.’” This quote teaches us that we can gain knowledge from any environment, as long as we approach it with an open mind and a willingness to learn.
 
 <!-- </quote> -->
 

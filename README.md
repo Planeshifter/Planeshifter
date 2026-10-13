@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No matter how scared we are, we cannot let the fear of failure stop us from achieving our dreams. As Kevin Plank, CEO of Under Armour said: "There’s an entrepreneur right now, scared to death, making excuses, saying, ‘It’s not the right time just yet.’ There’s no such thing as a good time. Get out of your garage and go take a chance, and start your business." We can't wait for the ideal circumstances to take a shot at success. We must take the plunge and make our own luck. Quote: "You can't connect the dots looking forward; you can only connect them looking backwards. So you have to trust that the dots will somehow connect in your future. ― Steve Jobs
+Nothing is impossible. Ben Weissenstein was spot on when he said “Everything started as nothing”. This means that with hard work, dedication, and the right mindset, we can achieve anything. Don’t be afraid to start - opportunities are everywhere, you just have to find them and take the first step.
 
 <!-- </quote> -->
 

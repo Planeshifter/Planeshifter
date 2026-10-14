@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Nothing is impossible. Ben Weissenstein was spot on when he said “Everything started as nothing”. This means that with hard work, dedication, and the right mindset, we can achieve anything. Don’t be afraid to start - opportunities are everywhere, you just have to find them and take the first step.
+Live with purpose. As Mooie said, one day your life will flash before your eyes. Make sure that when that day comes, you have created a life worth looking back on. Fill your life with meaningful moments, experiences and relationships, and it will be worth watching.
 
 <!-- </quote> -->
 

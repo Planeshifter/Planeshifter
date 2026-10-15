@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Live with purpose. As Mooie said, one day your life will flash before your eyes. Make sure that when that day comes, you have created a life worth looking back on. Fill your life with meaningful moments, experiences and relationships, and it will be worth watching.
+Failure is inevitable on the road to success. As Napoleon Hill said, “most great people have attained their greatest success just one step beyond their greatest failure.” This means that we should not fear or be discouraged by failure, but instead continue to press on and learn from our mistakes.
 
 <!-- </quote> -->
 

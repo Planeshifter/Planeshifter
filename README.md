@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Failure is inevitable on the road to success. As Napoleon Hill said, “most great people have attained their greatest success just one step beyond their greatest failure.” This means that we should not fear or be discouraged by failure, but instead continue to press on and learn from our mistakes.
+It's not enough to just have a job. As Michael Gerber said: "The entrepreneur builds an enterprise; the technician builds a job". To really make a difference, we need to open ourselves to the possibility of creating something more. When we take the risk of stepping outside of our comfort zone and pursue our passion, we can build something that lasts.
 
 <!-- </quote> -->
 

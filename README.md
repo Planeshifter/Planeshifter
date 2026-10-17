@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's not enough to just have a job. As Michael Gerber said: "The entrepreneur builds an enterprise; the technician builds a job". To really make a difference, we need to open ourselves to the possibility of creating something more. When we take the risk of stepping outside of our comfort zone and pursue our passion, we can build something that lasts.
+What's the difference between knowing and overlooking? Knowing is aware and conscious, overlooking is disregarding or ignoring. Or, as William James said, "The art of being wise is knowing what to overlook." This quote means that wisdom is not just about knowing what to pay attention to, but also being able to ignore what is not important or beneficial. In our daily lives, this quote reminds us to choose our battles wisely, and to be careful not to be overwhelmed by the small stuff; it's important to know when it's better to overlook certain situations and move on.
 
 <!-- </quote> -->
 

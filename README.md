@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all need a break from time to time, but if you're living for the weekend or your next vacation, your life is not in balance. As Gary Vaynerchuk said: "If you live for weekends or vacations, your shit is broken". Life is about finding joy and fulfillment in everyday moments, not just the special ones.
+It's not the strongest or the smartest that will be successful—it's the ones who have laser-like focus. As Bruce Lee famously said, “The successful warrior is the average man, with laser-like focus.” Having the right mindset, discipline, and determination can take us much farther than any talent or IQ.
 
 <!-- </quote> -->
 

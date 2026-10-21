@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Adversity can make us stronger. As the Chinese proverb says, "The diamond cannot be polished without friction, nor the man perfected without trials." Difficult times help build our resilience and can lead to personal growth. To become the best version of ourselves, we must be willing to face our challenges head on.
+Why bother if all obstacles must be cleared first? Because nothing will get done. Or, as Samuel Johnson said, Nothing will ever be attempted if all possible objections must first be overcome. This quote reminds us that it is not enough to just see the potential benefits of a task, but that we must take action in order to get something done. In our lives, this means that if we want to achieve our goals, we must be willing to take risks and overcome any obstacles that stand in our way.
 
 <!-- </quote> -->
 

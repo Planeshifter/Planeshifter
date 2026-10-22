@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Why bother if all obstacles must be cleared first? Because nothing will get done. Or, as Samuel Johnson said, Nothing will ever be attempted if all possible objections must first be overcome. This quote reminds us that it is not enough to just see the potential benefits of a task, but that we must take action in order to get something done. In our lives, this means that if we want to achieve our goals, we must be willing to take risks and overcome any obstacles that stand in our way.
+The old Chinese proverb is true: “Failing to plan is planning to fail.” Without proper planning, it's impossible to achieve success. We need to set goals and create a roadmap to get there. This will give us the structure and direction needed to achieve our desired outcomes.
 
 <!-- </quote> -->
 

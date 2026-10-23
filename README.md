@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-The old Chinese proverb is true: “Failing to plan is planning to fail.” Without proper planning, it's impossible to achieve success. We need to set goals and create a roadmap to get there. This will give us the structure and direction needed to achieve our desired outcomes.
+Life is too short to settle for anything less than your dreams. As Eliza Dushku said, “Go big, or go home”. Don’t be afraid to take risks and go after what you want. You’ll never know what is possible unless you try.
 
 <!-- </quote> -->
 

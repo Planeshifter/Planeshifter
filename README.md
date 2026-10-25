@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-When starting a business, it's essential to plan for the unexpected. As Richard Harroch, Venture Capitalist, puts it: "It’s almost always harder to raise capital than you thought it would be, and it always takes longer. So plan for that." It's important to give yourself enough time and have a backup plan in case things take longer than expected.
+Live with purpose. As Mooie said, one day your life will flash before your eyes. Make sure that when that day comes, you have created a life worth looking back on. Fill your life with meaningful moments, experiences and relationships, and it will be worth watching.
 
 <!-- </quote> -->
 

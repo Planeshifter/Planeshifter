@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Live with purpose. As Mooie said, one day your life will flash before your eyes. Make sure that when that day comes, you have created a life worth looking back on. Fill your life with meaningful moments, experiences and relationships, and it will be worth watching.
+No matter how big your dreams are, it’s important to focus on the present and make sure that you are doing everything you can to serve one customer at a time. As Gary Comer said, “Worry about being better; bigger will take care of itself. Think one customer at a time and take care of each one the best way you can.”
 
 <!-- </quote> -->
 

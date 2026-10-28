@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Why worry about the future, when today brings enough trouble? Because worrying about the future only adds to our misery. Or, as Seneca said, "The mind that is anxious about future events is miserable." This quote serves as a reminder to live in the present and enjoy the moments instead of worrying about the future. It is important to be mindful of this in our daily life because worrying about events that may or may not happen only adds to our stress and unhappiness, which in turn will negatively affect our health, relationships, and other aspects of life.
+Dreams can only come true if we are willing to put in the necessary effort. As Donald Trump said: "I wasn't satisfied just to earn a good living. I was looking to make a statement." It takes dedication, resilience and dedication to make those dreams a reality.
 
 <!-- </quote> -->
 

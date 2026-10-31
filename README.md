@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You can't learn to walk or succeed in life by following a strict set of rules. As Richard Branson said, "You learn by doing and falling over." It's only through trial and error, hard work, and resilience that we can achieve our goals and reach our full potential.
+Success won't come to you - you need to go out and get it. As Nolan Bushnell said: "The critical ingredient is getting off your butt and doing something". If we proactively take action, take risks and make moves, we can open up opportunities and create our own luck.
 
 <!-- </quote> -->
 

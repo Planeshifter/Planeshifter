@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We all want to enjoy our lives and find a job where we can be passionate about. As Confucius said: "Find a job you love and you'll never work a day in your life". This means that if we find a job that we love and are passionate about, then every day will be an enjoyable experience.
+What should you do to aim higher than the average? Aim out of the ballpark. What do you do when you want to hit it out of the park? A: Don't bunt! How can you reach your highest potential? A: Aim out of the ballpark. Or, as David Ogilvy said, "Don't bunt. Aim out of the ballpark." This quote encourages us to take chances and strive for excellence: to aim higher than the average and try to achieve something extraordinary. In our daily lives, this quote is a reminder to us that we should not be content with mediocrity or settling for the status quo. Instead, we should take risks, push ourselves beyond our comfort zone, and strive for greatness.
 
 <!-- </quote> -->
 

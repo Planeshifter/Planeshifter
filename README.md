@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What should you do to aim higher than the average? Aim out of the ballpark. What do you do when you want to hit it out of the park? A: Don't bunt! How can you reach your highest potential? A: Aim out of the ballpark. Or, as David Ogilvy said, "Don't bunt. Aim out of the ballpark." This quote encourages us to take chances and strive for excellence: to aim higher than the average and try to achieve something extraordinary. In our daily lives, this quote is a reminder to us that we should not be content with mediocrity or settling for the status quo. Instead, we should take risks, push ourselves beyond our comfort zone, and strive for greatness.
+We live in a world where knowledge and technology are becoming increasingly important. As Bill Gates said: "Be nice to geeks, you'll probably end up working for one". We should respect the intelligence and hard work of the geeks that contribute to the advancement of our society.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-We live in a world where knowledge and technology are becoming increasingly important. As Bill Gates said: "Be nice to geeks, you'll probably end up working for one". We should respect the intelligence and hard work of the geeks that contribute to the advancement of our society.
+When pursuing something, we should not be afraid of failure. As Michael Dunlop said, "If you start with nothing and end up with nothing, there’s nothing lost". Even if we don't achieve our goals, we can still find value in the experience and lessons we have learned. Quote: “Change is the only constant in life.” ― Heraclitus
 
 <!-- </quote> -->
 

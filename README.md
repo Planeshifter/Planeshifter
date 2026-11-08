@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No man is an island. As the Chinese proverb says: "Make happy those who are near, and those who are far will come". Our connections to the people around us are essential to our overall contentment and success, so it's important to nurture them.
+You can't give up when you face adversity. As the Japanese proverb says, "Fall seven times and stand up eight". We have to persevere in times of trouble and never give up. We must take on every challenge with courage and determination.
 
 <!-- </quote> -->
 

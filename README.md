@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-You can't give up when you face adversity. As the Japanese proverb says, "Fall seven times and stand up eight". We have to persevere in times of trouble and never give up. We must take on every challenge with courage and determination.
+Success is about more than just making money. As Winston Churchill said, "We make a living by what we get, but we make a life by what we give." By making a difference in someone else's life or by helping out in our community, we can create a meaningful, impactful life.
 
 <!-- </quote> -->
 

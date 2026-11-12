@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What is the cure for all of life's ills? Wisdom. Or, as Thomas Huxley said, "The only medicine for suffering, crime, and all the other woes of mankind, is wisdom." Wisdom can help us to better understand our experiences and make smart decisions. In our daily life, wisdom can guide us to make better choices that will benefit us and the people around us.
+Where can we find the sacred? In our daily life, in our friends, family, and even our own backyard. Or, as Abraham Maslow said, "The great lesson is that the sacred is in the ordinary, that it is to be found in one's daily life, in one's neighbors, friends and family, in one's backyard." This quote encourages us to recognize the beauty, joy, and peace that exists all around us, in the ordinary moments of our lives. This is important because it can remind us to take a step back from our busy lives and appreciate the people, places, and things that make our lives meaningful.
 
 <!-- </quote> -->
 

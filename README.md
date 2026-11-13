@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Where can we find the sacred? In our daily life, in our friends, family, and even our own backyard. Or, as Abraham Maslow said, "The great lesson is that the sacred is in the ordinary, that it is to be found in one's daily life, in one's neighbors, friends and family, in one's backyard." This quote encourages us to recognize the beauty, joy, and peace that exists all around us, in the ordinary moments of our lives. This is important because it can remind us to take a step back from our busy lives and appreciate the people, places, and things that make our lives meaningful.
+Our habits shape our destiny. This Chinese proverb says it all: "Sow a thought, reap an action; sow an action, reap a habit; sow a habit, reap a character; sow a character, reap a destiny". So it‘s important to remember that our small decisions and actions will add up to shape our lives.
 
 <!-- </quote> -->
 

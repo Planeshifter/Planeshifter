@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Our habits shape our destiny. This Chinese proverb says it all: "Sow a thought, reap an action; sow an action, reap a habit; sow a habit, reap a character; sow a character, reap a destiny". So it‘s important to remember that our small decisions and actions will add up to shape our lives.
+No matter how good our tools are, it ultimately comes down to the user. As the Chinese Proverb says, “A bad workman blames his tools”. If our work is unsatisfactory, it's not because of the tools we use, but because of our own lack of skill and effort.
 
 <!-- </quote> -->
 

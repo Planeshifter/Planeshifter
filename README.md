@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-No matter how good our tools are, it ultimately comes down to the user. As the Chinese Proverb says, “A bad workman blames his tools”. If our work is unsatisfactory, it's not because of the tools we use, but because of our own lack of skill and effort.
+Being an entrepreneur is not an easy feat. As Ted Turner said, "My son is now an 'entrepreneur'. That's what you're called when you don't have a job". It might be tough, but it can be rewarding. It requires hard work, dedication, and the ability to take risks.
 
 <!-- </quote> -->
 

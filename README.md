@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Being an entrepreneur is not an easy feat. As Ted Turner said, "My son is now an 'entrepreneur'. That's what you're called when you don't have a job". It might be tough, but it can be rewarding. It requires hard work, dedication, and the ability to take risks.
+What can make everything better? Positive thinking. Or, as Zig Ziglar said, "Positive thinking will let you do everything better than negative thinking will." This quote reminds us that our attitude and outlook can have a major impact on how successful and effective we are in life. The power of positive thinking can help us to approach everyday challenges with a more open and optimistic mindset and can provide us with the courage and confidence to reach our goals. Positive thinking can also help to reduce stress and anxiety, allowing us to make decisions with more clarity and focus. Ultimately, this quote highlights the importance of viewing life with an attitude of positivity, as it can help us to make the most of our time and opportunities.
 
 <!-- </quote> -->
 

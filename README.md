@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What can make everything better? Positive thinking. Or, as Zig Ziglar said, "Positive thinking will let you do everything better than negative thinking will." This quote reminds us that our attitude and outlook can have a major impact on how successful and effective we are in life. The power of positive thinking can help us to approach everyday challenges with a more open and optimistic mindset and can provide us with the courage and confidence to reach our goals. Positive thinking can also help to reduce stress and anxiety, allowing us to make decisions with more clarity and focus. Ultimately, this quote highlights the importance of viewing life with an attitude of positivity, as it can help us to make the most of our time and opportunities.
+What do wise men and fools have in common? They both learn from experience. Or, as a Latin proverb said, “A wise man learns by the mistakes of others, a fool by his own.” This proverb is reminding us that it is often wiser to learn from the mistakes of others rather than making our own. This is important to you because it is often a less costly option to learn from the mistakes of those around you instead of having to face the consequences of making your own mistakes.
 
 <!-- </quote> -->
 

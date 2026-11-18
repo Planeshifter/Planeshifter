@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-What do wise men and fools have in common? They both learn from experience. Or, as a Latin proverb said, “A wise man learns by the mistakes of others, a fool by his own.” This proverb is reminding us that it is often wiser to learn from the mistakes of others rather than making our own. This is important to you because it is often a less costly option to learn from the mistakes of those around you instead of having to face the consequences of making your own mistakes.
+It's easy to come up with ideas, but the hard part is putting them into action. As Guy Kawasaki said: "Ideas are easy. Implementation is hard." We need to go beyond just dreaming and come up with plans to make our dreams come true. Without dedication and strategy, our ideas will remain just that - ideas.
 
 <!-- </quote> -->
 

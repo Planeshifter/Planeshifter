@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-It's easy to come up with ideas, but the hard part is putting them into action. As Guy Kawasaki said: "Ideas are easy. Implementation is hard." We need to go beyond just dreaming and come up with plans to make our dreams come true. Without dedication and strategy, our ideas will remain just that - ideas.
+Failure isn’t an option - as Emil Motycka said: "The biggest failure you can have in life is not trying at all." We must push ourselves and take risks if we want to succeed. The only failure is not trying, for that takes away any chance of growth and success.
 
 <!-- </quote> -->
 

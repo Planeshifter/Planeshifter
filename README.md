@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Failure isn’t an option - as Emil Motycka said: "The biggest failure you can have in life is not trying at all." We must push ourselves and take risks if we want to succeed. The only failure is not trying, for that takes away any chance of growth and success.
+Nothing comes easy, and to be successful, we have to be dedicated and passionate. Thomas J. Watson said it best: "To be successful, you have to have your heart in your business, and your business in your heart". We must do our best and put in the effort to reach our goals.
 
 <!-- </quote> -->
 

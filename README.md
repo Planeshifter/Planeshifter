@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Nothing comes easy, and to be successful, we have to be dedicated and passionate. Thomas J. Watson said it best: "To be successful, you have to have your heart in your business, and your business in your heart". We must do our best and put in the effort to reach our goals.
+Dreams can only come true if we are willing to put in the necessary effort. As Donald Trump said: "I wasn't satisfied just to earn a good living. I was looking to make a statement." It takes dedication, resilience and dedication to make those dreams a reality.
 
 <!-- </quote> -->
 

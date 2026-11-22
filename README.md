@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Dreams can only come true if we are willing to put in the necessary effort. As Donald Trump said: "I wasn't satisfied just to earn a good living. I was looking to make a statement." It takes dedication, resilience and dedication to make those dreams a reality.
+As George Burns said, it's better to fail at something we love than to be successful at something we dislike. Success without passion and joy is hollow. Life is too short to waste it on something we don't enjoy. It's important to find something we enjoy, and be passionate and determined to work hard to succeed.
 
 <!-- </quote> -->
 

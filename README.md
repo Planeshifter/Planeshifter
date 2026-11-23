@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-As George Burns said, it's better to fail at something we love than to be successful at something we dislike. Success without passion and joy is hollow. Life is too short to waste it on something we don't enjoy. It's important to find something we enjoy, and be passionate and determined to work hard to succeed.
+Having money isn't the only thing that matters. As Jim Rohn said: "The greatest reward in becoming a millionaire is not the amount of money that you earn. It is the kind of person that you have to become to become a millionaire in the first place." Money isn't everything, but the journey to get there can shape who we are and help us grow.
 
 <!-- </quote> -->
 

@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-When it comes to making decisions, it's important to recognize that no one is entirely right or wrong. As Bertrand Russell said: "The whole problem with the world is that fools and fanatics are always so certain of themselves, but wiser people so full of doubts." We need to be aware of our own biases and be willing to listen to other perspectives so that we can gain a better understanding.
+Failure is not the end. As Robert T. Kiyosaki said: "Failure defeats losers, failure inspires winners". We should not be afraid to take risks, as it is from our mistakes that we can learn and grow. Only then can we be successful.
 
 <!-- </quote> -->
 

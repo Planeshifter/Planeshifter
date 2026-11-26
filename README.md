@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Failure is not the end. As Robert T. Kiyosaki said: "Failure defeats losers, failure inspires winners". We should not be afraid to take risks, as it is from our mistakes that we can learn and grow. Only then can we be successful.
+If you are content with the status quo, you are more likely to escape criticism. As Aristotle said: "There is only one way to avoid criticism: Do nothing, say nothing, and be nothing". However, staying idle is not a recipe for success. To reach our goals, we need to take risks, speak up, and be proactive.
 
 <!-- </quote> -->
 

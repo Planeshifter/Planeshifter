@@ -11,7 +11,7 @@
 
 <!-- <quote> -->
 
-Education is an investment in the future. As Derek Bok said, "If you think education is expensive, try ignorance". Not educating oneself can cost much more in the long run. Investing in knowledge, skills and experience will build a solid foundation for success.
+In order to reach success, we need to have the vision to imagine it. As John Lennon said: "You won’t get anything unless you have the vision to imagine it." We have to have the courage to dream big and to have faith that our dreams can come true.
 
 <!-- </quote> -->
 
